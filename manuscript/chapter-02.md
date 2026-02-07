@@ -1,0 +1,191 @@
+# Chapter 2
+
+*      Hans Richter was the second son of Gerhard Richter and his American born wife, Anne Harris Richter. They met in London where Gerhard ran the British office of his family's far-flung import-export business and Anne was a piano student at the London Conservatory. It was a whirl-wind courtship. They met in the spring of 1910 and married six months later, barely giving Karl von der Greif enough time to make preparations for the long trip to London where he stood with Gerhard as his best man.*
+
+From the first moment he saw Anne Harris with Gerhard Richter at Victoria station where the two of them had come to meet his train, Karl was in love with her. As time passed, Karl's feelings for her intensified to such an extent that they led him into a disasterous marriage with Gerhard's much younger sister, Gretl. Gerhard warned him, telling him that she was a spoiled princess who wanted Karl's money and the von in his name that proclaimed him - and would proclaim her - an aristocrat, especially since with it came an intensely masculine man who wore a uniform well and was destined for great things in the military. Beyond even that, Gerhard said, she wanted to conquer her brother's close friend, a man who had never taken her seriously as a woman. Karl hadn't listened. Since he couldn't have Anne, he had lost himself in lust for Gretl, the girl-woman who knew
+
+
+how to flatter a man, how to use her body to tempt him. She had pouted her lips and twitched her derriere, promising bliss with every studied moment. He had chosen to believe her, realizing far too late that all he really wanted from her was the chance to be part of that family, part of Gerhard and Anne. Had Gerhard been wrong about her, it might have worked out for Karl really tried, but three daughters later, there was nothing left but the shell of a relationship, an outward appearance that less and less belied the inner angry emptiness. The only good thing that had come to Karl from the marriage was his oldest daughter, Dorothea, whom he adored. (The other two were too much like their mother.); and the only good thing to come from the war was the fact that Gretl was gone, off to the Black Forest and the land and the elegant hunting chalet she had inherited from her mother.
+Hans and his older brother James knew only that their Aunt Gretl was a difficult woman who made them uncomfortable, but even she could not spoil the summers the two of them - and twice their American cousin Peter Harris - spent with their mother at Karl's Prussian estate to escape the heat and confinement of summers in London. It was an idyllic place, deep forests, broad fields, a big house, large stables with superb horses, just the sort of place to gladden a boy's heart.
+James was a strong solid humorful boy with his father's even temperament, while Hans was smaller and fine-boned, almost fragile
+
+
+looking like his mother. But that appearance was deceptive. Hans also had her inner strength, her tenacity and her wonderful vitality, qualities that as an officer, drew men to him. It was Karl as much as his father who encouraged the development in Hans' innate leadership qualities that made those men want to stay and serve with him.
+Karl was in Prussia with them as often as he could be, especially when Anne Richter was also there. He taught the boys how to ride and hunt, even played cricket with them from time to time the two summers when James enlisted them all to help him become the best cricketeer in his school. James was much better at games than Hans, but Hans had an affinity for horses that Karl found remarkable and he was the best shot of them all, better even than Karl.
+The last time they were all in Prussia together was in 1936, when they buried Gerhard Richter. It had been difficult for Karl. No one ever replaced a friend as close as that, but it was made even worse because he knew he was losing Anne as well. The boys were too old for long summer visits and Karl had become far too busy. Then came the war and two years later, her marriage to an Englishman, Captain Michael Compton, who was both Hans' godfather and a section chief with British Military Intelligence. He was a man Karl von der Greif detested, though he had never met him. Not only did Michael Compton have the only woman Karl ever really wanted, but Hans' relationship to an enemy intelligence chief had haunted his military career since it became known to the German general staff in 1940. It
+
+
+had infuriated Karl when suspicions about that relationship had sent Hans to the Russian front after his escape from England in the summer of 1941. They wanted him away from the Channel, somewhere where that connection wouldn't matter. So, instead of the relative safety of Berlin and the General Staff appointment he deserved, Hans had wound up in Stalingrad.
+Karl intended to see to it that nothing like that happened to Hans again. That combined with his concern about Hans' present mental state set him moving. He was a man of action. He didn't wait. Within ten minutes of Georg Brandt's departure, he made sure that Otto's daughter Helga, who was his cook, would look in on Hans and was off with Otto driving the staff car, on the way to the office of General Friedrich Fromm, the commander of the Replacement Army. He was also the man who had brought Karl into the plot.
+The early winter twilight was gathering itself toward darkness when they returned.
+Karl was very pleased with himself and was anxious to discuss the result with Hans. It was hard to wait. So he paced the floor of Hans' bedroom, wanting to wake him but knowing he shouldn't. He looked over at the bed anxiously from time to time, but saw no sign that Hans was coming out of his sedated sleep.
+He moved from the door that led to the hall - it was shut - to the bathroom which was immaculate, along the heavily carved wood paneling that covered the walls, past an ancient armoire to the bay of
+
+
+windows where he stood looking out over the gray brown of the winter garden through the fading light.
+It was then that the extent of their failure finally hit him. The evidence of it sat out in his back garden, wedged deeply into the snow. The only danger it would cause now was if it were found and he had taken care of that as well. It would be taken away in the morning and disposed of.
+Further evidence lay in the bed behind him. Hans was alive. Despite everything, that was the one thing for which Karl was profoundly grateful.
+His hand went to the russet velvet curtain, swaying them back and forth until the rattle of the rings on the wooden rod made him stop. He turned and saw that Hans looking at him with those eyes that were so like his mother's.
+"I'm sorry." Hans' words were a bare croak.
+"The detonator failed, not you."
+"I know, but I'm still sorry." He let out a long breath. "What can I do?"
+"Go to France."
+Hans shook his head.
+"You're needed in France."
+"With the rest of the invalids?" He shook his head again. Then
+his voice turned hard. "France isn't France any more with us there. I don't want to go."
+
+
+"You'd rather go east?"
+"At least you know who you're fighting there."
+Karl looked away.
+"Besides, I'm the Hero of Stalingrad. The Fuehrer said so him
+self. Out there I'd be worth a regiment all by myself."
+"You want to die."
+"Of course. Isn't that what today was all about?"
+"No. You were sacrificing yourself to end the war, not throwing yourself away."
+Hans wiped his hand up his forehead and back along his hair. "I'm tired."
+"We're all tired," Karl said angrily. "But rest is a luxury we can't afford until the war is over. So you will go to France and take command of the 1st Armored Regiment of the 32nd Panzer Division. I made the arrangements this afternoon. The regiment is in terrible shape, so it's perfect for our purposes, and for yours. You'll have a free hand to do what needs to be done. You'll get men, equipment, everything. Even Hitler knows that an invasion is coming to France and he wants to be ready. And since you're his current favorite, you'll get everyone and everything you want. You can get rid of the incompetents and anyone else you don't want. Surround yourself with men you can trust. Reequip with first line materiel. I can see to much of that."
+"We need you." Karl was pleading with him now. "We need men in
+
+
+command of fighting troops to neutralize the Gestapo and the SS when the time comes, to keep them from starting a civil war, and to give us time to contain the Russians while we negotiate peace in the west." He stopped.
+"Will you at least think about it?" Karl asked when he couldn't
+stand the silence any more.	"Georg could go with you." He was
+talking fast. "He wants to leave Berlin. And Ulrich Wagner. He isn't happy sitting behind a desk. And Schuster and Schmidt. They came to my office before they went home on leave. To thank me for getting them - and you - out of Stalingrad and to say that if at all possible, they want to serve with you again."
+The silence continued.
+"Think about it, my boy. Take your time. Whatever you want. Rest. We'll talk about it again in the morning."
+He came over to the bed and stood there for a moment looking down at Hans Richter. Then he sighed, patted Hans' hand clumsily and left.
+By nine o'clock the next morning, Hans was sitting on one end of the window seat, wrapped in a heavy robe, waiting for Karl. He was consumed by lethargy, physically inert except for the rapid pulsing of the carotid arteries on either side of his neck.
+Otto had helped him with a bath to keep the bandage on his leg dry and had changed the bed while Hans was shaving. Everything
+
+
+looked clean, neat, ordered. If he had been thinking about it, Hans
+Richter would have found that a bitter irony.
+There was a knock on the door.
+Hans didn't answer.
+There was another knock, more insistent this time.
+He still didn't answer.
+The door opened and Karl came in. He stood there, the door knob
+still in his hand and looked across the room. "You look better," he
+said cautiously.
+Hans shrugged.
+Though he hadn't been asked, Karl came on in and lowered himself
+into the big soft leather chair he had had put by the bed. "You've
+decided not to go."
+"I wish it were that simple."
+"It's not complicated, for God's sake."
+"Yes, it is," Hans snapped back. "Infinitely complicated.
+There's something I have to tell you, and when I do, you may not want
+me to go."
+Karl looked at him in exasperation.
+"Until last week when I resigned ... Until then, for much of
+the last seven years, I was a spy for the British."
+Karl stiffened and his eyes narrowed slightly as if he were try
+ing to focus on something that was at a great distance. "I was just
+telling myself ho proud I was..." He cleared his throat. "... that
+
+
+those English schools, even your American mother hadn't managed to wean you away from Germany, that you were German."
+"I am German."
+Karl's eyebrows went up. "Are you really? Germans I know don't spy for England."
+"I resigned."
+"How?"
+"I sent a letter."
+Karl brushed that aside with a sharp jerk of his hand. "Do you think that's some sort of magic wand? Wave a resignation and purify yourself in one easy motion? It's not that simple."
+"What about what I tried to do yesterday?" Hans asked angrily. "Isn't that some sort of expiation?"
+"Don't the British want him dead?" Karl asked back. "You could have been doing that on Michael Compton's orders." His head swiveled. His eyes were hard on Hans. "Michael Compton was your spymaster, wasn't he."
+"Yes."
+There was a curt nod and Karl's face turned back toward the win
+dow.
+"I stopped working for British Intelligence when I got to Rus
+sia."
+"How wise the Wehrmacht was to send you there." Karl snapped. "And to think how angry I was at the time. Unfair, I said." There
+
+
+was a catch in his voice. "Heroic escape from England ... They helped you escape, didn't they. The British Intelligence Service. They helped you escape from England."
+"Yes."
+"Did they help you with your wound, too?"
+"No."
+"I'm surprised. It would have been a brilliant stroke, typi
+cally British, especially since it nearly killed you. Really mitigated in your favor. Did you know the doubts that were expressed about you? Your stepfather, that damnable Michael Compton ... But you were so badly wounded..." He couldn't go on. They sat in silence.
+When Karl spoke again it was in a purely conversational tone, as if he barely knew Hans but felt obliged to make conversation. "You said something about last week. You sent a letter last week. How did you manage to do that?"
+"Through a postal drop in Sweden."
+"Ah, yes. Sweden. Easy enough to do, I suppose. Just tell the military attache it was a letter to the love of your life, or even to your mother, since you can write her so rarely. I assume it was addressed to a woman."
+Hans didn't answer.
+"Why did you bother? We're losing." It was the statement of a disinterested observer. But then he looked around in reflex anxiety, to see if anyone was listening. When he caught himself, he raised
+
+
+his voice defiantly. "The sooner we lose, the better. If he's going to hell, our precious Fuehrer intends to take Germany with him. I, for one, don't intend to let him do it."
+"Neither do I."
+"My God." Karl rose and walked toward the door. "I can't stand any more of this."
+"I meant what I said." Hans said. "I don't intend to let him do it. My reason is the same as yours. He can't be allowed to destroy Germany. I don't mean what he's turned Germany into, I mean what German really is."
+Karl stopped at the door. His hand was on the handle and it was shaking. "I wish you'd blown yourself and all those bastards to kingdom come without my ever knowing. I wish I had left you in Stalingrad. Do you know what I risked to get you out of there? Not the physical danger. I don't mean that. I mean the plot. We thought that General Paulus would be enraged about what what the Fuehrer had done to his army. That if someone just went in to talk to him, let him see he had support from his fellow officers, he'd surrender and save what was left of his army, then broadcast to the nation telling them why. The insanity of the order to stand. That the Fuehrer had thrown away an army. Think of the effect that would have had.
+"I insisted they send me, saying I had the best excuse to go. The supply situation was appalling. But I really insisted because of you. I knew you were wounded, that it was serious and if you were
+
+
+left there, you would die. So I went in and talked to him. Tried everything, reason, persuasion and, in the end, a lot of anger. But he wouldn't move. He said he had his orders and that orders were to be obeyed. He's a stubborn, rigid fool." Karl eyes were squinting with the pain of it. "He was never a fighting general. Just an administrator. That's all he was, all he ever should have been. He doesn't understand the waging of war and because he doesn't, he's letting an army die and the Fuehrer live.
+"What haunts me ... They sent me." He thumped his chest with his forefinger. "I insisted. If they had sent someone else..." He seemed to shrink into himself. "Someone else might have done better with him. Someone else might have persuaded him. All I managed to do was to save you, and you are a spy." He drew in a long ragged breath and looked off into a distance that was well beyond his back garden.
+"Just tell me why," he said at last. "Not why you did it. I can imagine why you did it. But why you stopped. We're losing the war and there are thousands of Germans who would sell their souls to be able to tell their eventual conquerors that they were working for British Intelligence."
+"I told you why." Hans said angrily. "At first, when I got to Russia, I stopped because there was no way to get information out. Later, with the way the fighting was going, ... And the men ... " He shook his head in a helpless little gesture. "I had a loyalty to
+
+
+those men that transcended everything. It was fighting to the death. I know, all war is fighting to the death, but not like this. This was primitive. No quarter given. Tearing each other limb from limb. To survive that, a man cannot have divided loyalties. We all had to stand together. My men were good men. We were together. We were Germans." Hans wrapped the robe more tightly around himself as if he were cold. "But there are other Germans ... Himmler's goon squads. They're killing the Jews and the political commissars and everyone else they can think of. You know about them, don't you?" The sarcasm was inescapable.
+Karl kept his face to the window.
+"Everyone should know about them," Hans said. "It was the one thing I would have told the British if I could have, but they had to know that time. The Russians certainly knew and they had no reason to keep quiet about it.
+"In fact it was a goon squad who made me feel just how German I really am. Last August. It was a beautiful summer. Endless sunshine. Endless dusty plains. Remember?" he asked grimly.
+There was no acknowledgement that he had spoken.
+"Schuster and I managed to get the quartermaster to loan us a couple of horses. Got some wine, some bread and then had, as it turned out, the SS beside us in the wilderness.
+"As I said, it was a beautiful day. I still see it in my nightmares. The sky over the steppes was a deep blue that faded away to a
+
+
+white heat haze at the horizon in every direction. The dry creek beds were lined with willows and the fields rolled on forever, gold with ripening grain where the war hadn't flattened it out. Oh, yes. An idyllic day. Can't you just see it? I'm sure you can. You've been there. You were there during the last war, during this war and for several years in between. It can't have changed. Not in the last millennium."
+Karl lifted his face and rubbed his hand down the front of his
+neck.
+"We rode out away from everyone, shot some rabbits, then ate lunch and were coming back another way when we heard a low moaning, almost like the wind. But there wasn't any wind that day, so we rode toward it. Then we heard what sounded like shots so we rode faster. There were guards, but they didn't stop us. Just looked us over as we rode on until we saw ... In a fold of the earth, there was a long pit. Probably 50 meters long but it's hard to say. And just how deep it was..." He let out a long shuddering breath. "It was full of bodies, a tangle of bodies. Big. Small. Some men but mostly women and children. A lot of the women were old. But the children ... They looked like rag dolls. Some of them were clutching dolls. Naked, dead, but still clutching a doll. The sound we'd heard came from those who were still alive. They were standing on the edge of that hell-hole of a pit, wailing a low moaning wail. But not for long because they were the last and when they were shot there was no
+
+
+more wailing. They were shot and shot, even after they'd fallen into the pit, their bodies dancing a little, jerked by the force of the bullets." His breath was coming in harsh rasps.
+"And when they were done, the supposed elite of Germany, Himmler's chosen, began rifling the pathetic little bundles those people had brought with them, throwing away what they didn't want, holding up jewelry, a scarf, whatever they thought had value. They were laughing, stuffing their pockets as fast as they could with all the spoils of a war they were waging against helpless men, women and children.
+"So you tell me who the traitor to Germany is, Karl. Me? Or the vultures who feed off the carnage they create and prostitute Germany in the process, make her a diseased whore who infects everything she touches and everyone who touches her."
+"That should have driven you even more firmly into Michael Compton's loving arms." Karl folded his arms across his chest and squeezed. He was still looking out the window.
+"For God's sake, Karl. No. All I felt was guilt. I am a serving German officer so I am part of what permitted that. I bear responsibility for it. All Germans do because we let it happen. I suddenly saw that I am part of everything that is happening here, that I really am German."
+Karl had nothing to say to that.
+"When I began working for the British in 1936, I was 21 years
+
+
+old and my father had just died. I knew he wanted me to finish my degree in Munich. There was only one more year. But I didn't want to. I hated what was happening in Germany. What was being done to the Jews..." He shuddered. "What is still being done to the Jews."
+Karl shifted from one foot to the other.
+"So I decided to finish my degree in England if I could, even though it might mean losing a year. I was 21 years old and I wasn't anything, not German, not English and certainly not American." He was talking faster again, as if he needed to get it all out before something stopped him. "I was a visitor everywhere with no real allegiance anywhere, though what little I did have was for England, increasingly for England because I was raised there and because I saw what Germany was becoming. I wanted to be British."
+"Why didn't you do it? That's what your brother James did. He's an honest man. He's making a clean fight of it in the Royal Navy."
+"I intended to. That same summer, even though I knew it would have hurt my father, I asked Michael how to go about becoming a British subject. I didn't know what he did. I just knew he was something in the Foreign Office, so I thought he would know. Instead of telling me what I needed to do, he asked me to work for MI6. I was such an idealist. How could I resist? I thought I could do it all. That I would come back here, get the information, send it out, and put a stop to the war everyone knew was coming before it could start.
+
+
+Me. All by myself. Single-handed."
+Karl looked at him at last and the sorrow on his face silenced Hans more effectively than any bombast could have. "Then you haven't changed. The child really is father to the man because you were doing it again yesterday, thinking you could stop the war single-handedly. Kill Hitler, end the war and restore Germany's honor all by yourself."
+"Isn't that what I would have done?"
+"Yes. Of course. All by yourself. In killing the Fuehrer, you would kill yourself. Then you would rise from the dead to stop the civil war that would ensue and in the meantime part the Red Sea and drown the whole Russian Army so that they couldn't overrun us while we were solving our internal problems.
+"It takes a lot of men, you fool. It takes generals in command of fighting troops to shut down a civil war before it can start. It takes men with plans who can reorganize the whole German government from the top down. Then it takes even more men to put the plan into operation. You can to all that yourself?"
+"No." Hans said, then again, more firmly, "No. Of course not." His head lifted. "We are on the same side, Karl."
+"You and Hans Oster," Karl spat back at him, as if that explained everything.
+"What about him?" Hans asked in some confusion. He couldn't imagine what German Military Intelligence's second-in-command could
+
+
+possibly have to do with any of this.
+"He said the same thing to me about a year ago. That we really were on the same side." Karl stuffed his hands into his pockets and stared back out the window. "You weren't the only one sending information out. Early in 1940, Hans Oster warned the Danes and the Norwegians. Told them they'd be invaded in the spring. But he wasn't believed. He also warned a Dutchman about the invasion of France and the Low Countries. Even gave him the successive dates as it was pushed back. But he wasn't believed in Holland either. Probably because of those continual postponements." He looked around at Hans sharply. "I just realized that when Abwehr looked into your situation in Hamburg in 1940, when you were under such suspicion, Hans Oster was in charge of the investigation. He had to have had his own suspicions about what you were really doing there. And you really were doing it, weren't you. You were doing just what they said you were doing, spying for the British. The three men who died, the head of the Abwehr station, his assistant and his driver weren't the spies. You were. They had caught you and you made it look as if you had caught them. They were good Nazis, if such a thing can be said to exist. Tell me now that that's what you were doing when I staked my reputation on convincing them that you weren't. Tell me that that was part of your spying for the British."
+"That was part of my spying for the British," Hans said defiantly.
+
+
+"Thank you." He said it with great bitterness. There was a long silence.
+"It's ironic," Karl said finally. "You would have been even exonerated even without my intervention because good Nazis in the Hamburg station were a liability to that whole group in Abwehr."
+"What whole group in Abwehr?"
+"I've told you about Hans Oster. He was the head of it." Karl sat on the window seat and swung the curtains gently as he considered. Then he sighed. "Ulrich Wagner got the plastic explosives for you from Abwehr. One department has a cache of it. The British give it to the French Resistance along with the detonators, one of which is planted in a snow back in my back garden. And we took it from the French." There was a faint smile at the irony of that. "Abwehr gets it from the army, supposedly to test it. They do detonate some of it just to see what it will do and they're analyzing it. It's far better than anything we have. As for the rest ... They give some of it to us from time to time." Karl paused, then said abruptly, "You have resigned."
+"Yes."
+"But if you sent one letter through that letter drop in Sweden, you could send another one."
+"Yes." The word came out with great reluctance.
+Karl gave a short, sharp nod, then rose and resumed his pacing. "After the Fuehrer is gone, we will have to contact the western
+
+
+Allies at once. We need someone they know, someone they'll trust, someone they'll believe, first to contact them and then, perhaps, if we still haven't been able to negotiate the terms..." He turned on Hans. "We have been trying to negotiate terms for years. Without success. The Western Allies won't negotiate. They're afraid the Russians would find out and think they were going to be abandoned and left to fight us alone. Of course that's what we want to happen.
+"We agree to withdraw from France if they agree not to invade while we do. That way we are free to send all the armies we have to keep in France east, to use them both to contain the Russians and prevent a civil war without worrying about being attacked from the west.
+"Hans Oster made many of the contacts with them. But now he's being watched. The Gestapo has its suspicions. So he's unavailable. But you are available. And you are ideal. Who would suspect the Hero of Stalingrad? And you've been such a good boy, worked so hard for the British that they'll trust you and if they do, the Americans will, too. They'll believe you because you spent 6 years as one of MI6's own. So when we succeed, you" - He pointed an accusing finger at Hans. - "will be the one to set up the negotiations. You will explain the entire situation to the good captain, and through him get the western Allies' preliminary terms. At last that damnable Englishman will be good for something."

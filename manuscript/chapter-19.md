@@ -1,0 +1,519 @@
+# Chapter 19
+his officer's cap in his hands.
+She wrapped her heavy robe more closely around herself and
+looked back.
+"I can't stay," he said.  "I have to be at the airport.  I
+just wanted to see if you needed any help."
+"No."
+She was looking at him with a peculiar intensity that made him
+even more uncomfortable.   He looked away.  He owed her a debt that
+he was finding too heavy to bear.  What made it even worse was that
+he had no choice about having to bear it.
+She picked up a book from the small table beside the settee
+and held it out to him.
+He took it without even looking at it.
+"It's a book Peter wanted you to have.
+He nodded. "Gaston said you weren't well, that the doctor was
+coming."
+She moved around him and shut the door then came around to
+face him again because he still hadn't moved.
+"I am fine," she said softly.  "The doctor is coming to see
+Peter.  My supposed illness is an excuse for him to come."
+"Is he worse?"
+"I don't think so.  He fell as he got to the top of the attic
+stairs.  It frightened me, especially because I couldn't tell
+afterwards whether he was asleep or unconscious.  I stayed with him
+most of the night.  He seemed all right.  His breathing ...  He
+woke up a few hours ago, in pain.  I gave him one of the pills and
+some food and he went back to sleep.   So the doctor ... "  She
+stopped and backed away a step.  "You make me feel as if I have
+done something wrong and I can't imagine what that is."
+"You have done everything exactly right."
+Her eyes narrowed.  "Would you rather I hadn't?"
+There was a knock at the door.
+"What is it?" she asked angrily without taking her eyes from
+Hans' face.
+Gaston's voice came through the door.  "The doctor is here."
+"I have to go." Hans turned toward the door.
+"Will you be back?"
+"Just call me and tell me you want to see me and I'll come as
+soon as I can."
+"Madeleine," Gaston wailed.  "The doctor is here and there's a
+Gestapo man outside talking to the colonel's driver."
+
+
+Sergei kept looking at his watch.  He was sure the American
+was in that house and he wanted the colonel out of there. Besides,
+the colonel general's plane was due soon.  It wouldn't do to be
+late.
+He glanced up at the house, back at his watch, then, because
+there was the sound of a car's engine, into the rear view mirror.
+The car slowed to a stop behind the staff car, and he sat very
+still.  He knew the car, not that particular car, but what that car
+represented.  There was confirmation when a man wearing a trench
+coat and a green Tyrolean hat got out of the back.
+"Corporal Voronov?" the man asked as he approached the car.
+Sergei got out slowly and came to a semblance of attention.
+"Sir."
+"Gestapo Captain Mueller.  You helped get people out of the
+wreckage of the Cafe Ardiet last night."
+"Yes, sir."
+"One of those who came out of the cellar with your colonel
+was a lieutenant.  Who was he?"
+"I don't know."
+Mueller's face darkened.  "Where did he go?"
+"I don't know.  I went down into the cellar to help with the
+wounded.  I didn't see him after I got out."
+"Do you know that he was a big man?"  Mueller asked sarcasti-
+cally.
+"Yes."
+"With dark wavy hair."
+"I couldn't see that."
+"He was with a woman.  Do you know what happened to her?"
+"She was badly hurt.  She must have gone to the hospital."
+Sergei was tired and that only increased the strain of having to
+deal carefully with this man in German.
+"The lieutenant was also injured.  Why didn't he go to the
+hospital?"
+"I didn't know that he hadn't."
+"Did this lieutenant talk?"
+"Yes."
+"What did he say?"
+"We talked about how to get him and the woman out.  He was
+worried about her."
+"Did he cry out?"
+"Not while I was down there."
+"Did you hear anyone cry out in a foreign language?"
+Sergei pretended to think about that.  "I heard French and
+German."
+"No other language?"
+He shook his head.  "It was a confusing time."
+"Is there a problem here?"  Hans Richter's voice startled them
+both, but to Sergei it was a great relief.
+"Gestapo Captain Hermann Mueller, Colonel.  I am trying to
+find the lieutenant who was trapped in the cellar of the cafe with
+you.  I was just asking your man here about where he might have
+gone.  I would like to ask you those same questions."
+"Then apply to my office for an appointment."  Hans turned and
+gestured for Sergei to open the passenger door for him.
+"Just one question..."
+"I'm sorry," Hans said as he stepped into the car.  "It's a
+thirty minute drive from here to the Carapaquet and I have just
+thirty minutes to get there.  I barely met the lieutenant and have
+no idea what happened to him."
+"We know the man was injured, and that he refused to go to the
+hospital."  Mueller said.  "He was seen walking toward the Aldon
+with his arm in a sling."
+"Then look for him there."  Hans said and motioned inpatiently
+for Sergei to shut the passenger door,
+"He left there."
+"Perhaps he went back to his unit."
+"No."  Mueller was looking at him hard.  "No Wehrmacht unit in
+this area has never heard of him."
+Hans raised his eyebrows.  "There was a woman with him.  What
+does she say?"
+"Very little.  She had a concussion and a ruptured spleen and
+had just come out of surgery.  She said she just met him yesterday,
+at the hotel.  The hotel manager said that did seem to be the case.
+She spent the afternoon with him, then they had dinner together.
+She said he was very pleasant."
+Hans shrugged and motioned again.  This time Sergei shut the
+door and walked around to the driver's side.
+As they pulled away, Sergei kept glancing into the rear view
+mirror.  "He's going in to the house."
+Hans grunted in reply.
+When he had to stop at a corner, Sergei looked back.  The col-
+onel was looking intently at the book he had brought out with him.
+A letter was beside him on the seat.
+
+
+Gestapo Captain Mueller was shown upstairs by a subdued Gas-
+ton.  He found Madeleine lying in her bed looking feverish with a
+doctor taking her pulse.  He saw the doctor's bag open on the
+bureau but he did not see the damp sponge they'd used to make her
+look as if she were sweating.  It was under the covers, soaking
+into the mattress.
+"Gestapo Captain Hermann Mueller," he said.
+"This woman is ill," the doctor said abruptly.  He put her
+wrist down.  Only then did he turn and look at Mueller.  The doctor
+was a youngish man, tall and thin and he looked exhausted.
+"I won't take much of her time," Mueller said.
+"I hope not."  The doctor sat back in the chair he had pulled
+up beside the bed, preparing to wait.  Gaston was still hovering in
+the doorway.
+"Get out, doctor," Mueller said.  "I intend to see her alone."
+"If you insist."  The doctor rose.
+"Shut the door when you leave and take the boy with you."
+"We'll be in the kitchen, Madeleine.  Call if you need any-
+thing." He made a careful circle around the Gestapo man and was at
+the door before Mueller told him to wait.
+He turned back.
+"Were you in the square by the Aldon Hotel last night?"
+"I was helping near the rail yards.  The damage was heavy and
+there were a great many casualties."
+"And the boy?"
+"Gaston," the doctor called.
+The boy reappeared in the doorway.  He stood quietly and
+looked Mueller in the eye.
+Mueller's eyes narrowed.  "You work at the Cafe Ardiet so you
+were in the square during the fire."
+"Yes, sir."
+"Did you see a German lieutenant with black curly hair.  A big
+man.  He was in the cafe with a small French woman in a blue
+dress."
+"I saw them in the cafe before the raid.  They were eating
+dinner."
+"What about later, after he was hauled out of the cellar?"
+"No.  Monsieur Ardiet sent me to make sure our Aunt Clothilde
+was all right and then, when my sister Madeleine still hadn't
+appeared, he told me to find her. Then ..."
+"Enough." Mueller lifted an angry hand and the boy moved back
+a step.  "Get out.  Both of you."
+When the door was closed, he turned on Madeleine.  "Now about
+this man."
+
+
+Karl's plane was 30 minutes late.  Schuster had everything
+ready when Hans got there, so he stayed in the car and worked on
+the letter.  The message wasn't long.  He had just finished it when
+the plane came in for a landing.
+As Karl came down the four steps at the back of the plane, the
+line of the small honor guard snapped to attention, eyes forward.
+Hans stood in front of them with Schuster at his left, Erich von
+Feber next, and finally Schmidt.
+Hans saluted smartly as Karl's foot touched the tarmac.  Karl
+returned that salute, but he didn't smile.
+Hans introduced each of his officers in turn.  Karl greeted
+both Schuster and Schmidt with obvious pleasure and Erich von
+Feber, whom he did not know, with interest.  "I served with your
+father in France," he said.  "A fine man and a superb cavalry offi-
+cer.  His death was a great loss to us all."
+"Sir."  Von Feber inclined his head in acknowledgement.
+Then Karl reviewed the honor guard,  complimented the sergeant
+on their appearance, then walked the ten feet to the staff car
+where Sergei was standing at attention, holding open the door to
+the passenger side.  Sergei's eyes did not leave Karl's as he
+snapped his salute with precision.  Karl returned his salute then
+smiled at last and got into the car.  "You look fit, Sergei."
+"Thank you, sir," he said as he shut the door.  "So do you."
+Then he walked around to the other side of the car and opened the
+back door for Hans.
+"Where is Ulrich?" Karl asked.
+For a moment, Hans concentrated on settling himself into the
+seat.  "He died in the air raid last night."
+Karl was suddenly still.  Then he blinked twice.  "He survived
+the Polish campaign, the French.  Over a year on the eastern front.
+Almost bled to death when he lost that arm, but he survived all
+that.  Now, in France, with no fighting ...  A good man.  A ter-
+rible loss."
+"I served with him in 1940."  Hans cleared his throat.  "And
+again here.  He was a good friend.  It's hard."
+"An only son."  Karl shifted in his seat.  "Two sisters, but
+an only son.  I will write them.  Where did he die?"
+"In the basement of the cafe, with me."
+The lines in Karl's face were deep and his cheeks seemed to
+sag.  "Von Feber has taken over his command?"
+"Yes," Hans said.  "He was already the battalion intelligence
+officer when I got here and it was Ulrich who advised me to keep
+him."  He gave Karl a brief history.  "He is at least as good as
+Ulrich said he was. And he is with us in this.  The way he played
+the Gestapo ..."  Hans shook his head in admiration.  "I asked him
+if he could get in and out of a tank.  He said that he could. So I
+told him that he could have the command if he wanted it.  He just
+stood there looking at me.  I waited.  Finally he cleared his
+throat and said, 'Thank you.  I'd like that.'  I don't think it
+even occurred to him that it also meant that he'd be promoted to
+major."
+Karl grunted.  "I hope he still likes it when the invasion
+comes."
+"No news?"
+"No news.  At the moment."
+"There is something else I need to talk to you about."
+Karl jerked his head in Sergei's direction.
+"Sergei already knows."   Then Hans told Karl all about Peter,
+including the letter he had just decoded.
+The cynacism of that damnable Michael Compton in sending Peter
+is appalling, no matter what the reason.  First he uses you, his
+wife's son.  Then he uses her nephew.  Next it will be James.  How
+does she stand it?"  When there was no reply, Karl said, "At least
+he doesn't expect you to send intelligence.  What I want to know is
+why he would ask you?  How could he know you were involved?"
+"My letter of resignation must have given him the idea."
+"What does Peter know about any of this."
+"He knows the plot exists and that I'm involved.  That's all."
+Karl gave an exasperated jerk of his head.  "And this woman.
+How much does she know?"
+"Nothing about the plot.  Only about Peter.  And for the
+record, I don't like her being involved any more than you do.  If
+there had been any way to do it, I would have gotten him out of
+there myself, but there was no choice."
+"Will she really keep him safe?"
+"I hope so. Her life depends on it."
+"So do ours," Karl said.
+"The Gestapo was on its way into her house as I was leaving."
+"How will she stand up to that?"
+"Better, than most."
+"Not a ringing endorsement."
+"I didn't - don't - want her involved."  Hans' had his thumbs
+clenched inside his fists.  "Too much can happen when a woman gets
+involved."
+"Is she with the Resistance?"
+Hans looked up sharply.  "No."
+"How can you be sure?  And if she's not, how will she get him
+out of town?   His uniform won't do him any good, especially since
+the papers he has to go with it are compromised.  He'll need dif-
+ferent papers, other clothes and a place to go. That's not easy."
+"Apparently he has other papers, and he came from somewhere.
+There's no reason why he shouldn't go back there.  Also, she has a
+large family that's spread out all over Normandy.  If he can't go
+back to where he came from, she'll find someone to help him."
+"Family can be a blessing or a curse." Karl sighed.  "And
+these days, how can one be sure, even of family?  Someone is too
+fearful or talks to someone they shouldn't.  Or has a grudge and
+simply betrays her.  Or is caught and talks to save himself.  Or
+she is caught,  Or Peter ..."  He shook his head.
+"There's nothing to be done about any of it," Hans shifted in
+his seat.  "If it happens, it happens."
+"All right then." Karl grabbed Hans' shoulder and made him
+turn to look at him.  "We'll take what this Michael Compton has
+done and use it.  We'll open negotiations with the Allies now.  The
+invasion can't come until spring so there's still time.  You see
+Peter, before they move him somewhere inaccessible and give him the
+terms to take back to England.  After this lunch you've scheduled
+for me in Caen with your divisional commander.  He is sstill in
+Caen, isn't he?"
+"After lunch you're scheduled to review Schuster's battalion,"
+Hans said.  "And tomorrow is fully scheduled.  You inspect what is
+now von Feber's battalion, then lunch with all my officers, then
+the quarter master, then the field repair unit.  Originally I
+wanted you to put the fear of God into them but now there's bno
+need.  The master sergeant was running a black market operation
+with the connivance of the captain in charge.  They used the trucks
+in for repair to make deliveries to Paris.  We couldn't touch him
+because the operation also had the Gestapo's blessing.  Until yes-
+terday.  Schmidt went over himself to make sure things were ready
+for the inspection and found that Sergeant Kriebel was running
+another operation on the side, one even the Gestapo didn't know
+about, selling gasoline and tires.  The field police took him into
+custody late this morning."
+"With does the Gestapo have to say about that?"
+"He was stealing from the army, so it's an army matter.  They
+can't say a word."
+"For once," Karl said grimly.  "Now about seeing Peter ..."
+"This evening," said Hans.  "I kept it just for the two of us.
+It will have to be brief because I have to take you along.  It
+would look odd if I left you long enough to go into town alone.  So
+I'd just stop by as if I were checking up on her.  She's pretending
+to be ill so there's a reason for the doctor to come and go."   He
+frowned.  "You could wait in the car."
+"She'd think it peculiar if I didn't go in.  Besides, I want
+to meet her."  He shrugged.  "She doesn't need to know I'm
+involved.  I'll just say hello, chat for a moment, then go back out
+to the car and leave you alone to say ... whatever you want to say,
+including what you have to say to Peter.  If it weren't for Peter,
+I would be glad about her. You have mourned Annaliese long and
+hard.  Justifiably.  She was a remarkable woman.  But it's more
+than time you got on with your life.  But there is Peter and she is
+French."   He was silent for a long moment.  "Peter is a good boy.
+Smart, resourceful, physically strong.  If anyone can get back to
+England, he can.  But as glad as I am to have him for a conduit and
+as sad as I would have been to hear that he had died, I almost wish
+that he had."
+"I couldn't let him die in that cellar."
+"I understand that." Then Karl's voice hardened.  "That's what
+Michael Compton was counting on.  But what he refused to realize
+was that not even Peter can be allowed to interfere with what we're
+trying to do."
+
+
+Peter lay still, blinking through the gloom.  Something had
+woken him abruptly and he was frightened.
+"Are you awake?" Madeleine asked.
+"Yes," he breathed in relief.
+"Are you in pain?"
+He considered that.  His head was one deep, pounding ache.  He
+lifted his shoulder a bare inch and felt a stab of pain that made
+him let it fall back.
+"Are you in pain?" she asked again.
+"My head hurts and so does my shoulder when I move it."
+He heard a rustle of cloth.
+"Your pain pills."
+"No," he said.  "They make it hard to think and I need to
+think.  I also need to sit up.  Will you help me?"
+"The doctor says you should stay still."
+Peter remembered only vaguely that a doctor had been there, a
+thin tired man.  "What else did your doctor say?"
+"What Major Brandt said, that you have a concussion, a broken
+collar bone, a damaged shoulder and some broken ribs.  He taped
+them but even so, it's best if you don't move for a time."
+"I have to get out of here."
+"You may faint again."
+"I didn't faint getting up here until I fell on the stairs.
+He heard feet scuffling, then a scratching on the wall and a
+muffled voice calling, "Madeleine!"
+"It's my brother," she said.
+The panel opened, letting in a light that was almost blinding.
+A boy backed in, pulling a bag after himself.  Then he and his sis-
+ter engaged in a quick whispered conversation.
+After a moment, Gaston looked around at Peter.  "I am supposed
+to tell you that the French woman is getting better.  Her hotel
+bill has been paid and her things are at the hospital, with her, so
+she can leave whenever that is possible.  You are not to worry.
+She will be taken care of."
+Then Gaston turned back to his sister.  "I've got to tell Guy
+he's conscious."
+"Where is Guy?"  Madeleine asked.
+"Aunt Clothilde's."
+"You stay.  I'll go."
+"No!"
+"Yes," she pushed him aside.
+She got out before he could grab her.  He followed.
+"I have to go," Gaston protested.  "He asked me to tell him if
+the American was conscious.  We have to get him out of here."
+"That's ridiculous!"  She looked up from half way down the
+steep stair case.
+"The Gestapo's going to search the town."
+"When?"
+"All we know is that they're going to search," he said.  "No
+when.  But he has to be moved before they get here."
+She paled.  "Why?  This house was searched once before and
+they didn't find the hole."
+"Guy says they will this time," Gaston squeaked down at her.
+"Besides, he's conscious and he's talking.  That means he's going
+to be all right."
+"That may not last.  You heard the doctor. This can come and
+go.  And there's his shoulder and his ribs are broken.  If he moves
+too much, one can pierce a lung and make it collapse."
+"Guy will tend to him," the boy said with waning confidence.
+Madeleine just looked at him.  "Tell him about the Gestapo
+before I get back" - Her thumb jerked back toward the hole in the
+wall. - "and I'll kill you."
+The phone started to ring.
+
+
+"Should I talk to keep you awake?" Gaston asked Peter doubt-
+fully.
+"No."  Peter tried to smile.  "But you should talk to tell me
+what's so secret that you had to stand out there whispering with
+your sister."
+"There's not much happening outside right now."
+The boy had said it so slowly that Peter knew that if nothing
+was happening now, something was going to happen soon, and that
+whatever it was, it didn't mean good things for him.
+"So perhaps," the boy said with a diffidence that would have
+surprised anyone who knew him, "you should talk to keep yourself
+awake.  You could tell me about America."
+Peter heard real interest in his voice.  It was something he
+had experienced before and knew that what any European boy really
+wanted to hear was that the Wild West still lived and that there
+gangsters galore.  "It's not what you think," he said slowly. "In a
+way, it's a lot like France, except that we don't drink nearly so
+much wine.
+"People do very much the same things.  They have families and
+they work and go to church."  He shifted slightly.  "But because
+there's so much more land, houses are bigger and towns are farther
+apart.  Freight cars are bigger, twice as big, because they have to
+haul goods so much farther.  And there are big lakes, five called
+the Great Lakes which are as big as seas."  That brought to mind
+his summers with James and John.  And so he started talking about
+that and about them, especially about John, though he said nothing
+about Hans Richter.
+He talked for a long time.
+The boy was fascinated and Peter was comforted.
+
+
+"We have to move him," Guy said angrily.  "There's no choice.
+It's known that he came out of the cellar with you and the colo-
+nel.  He's already under suspicion as a subversive.  Given your
+association with him, then'll tear your house apart."
+"If he falls ... If he dies, what then?" Madeleine asked.
+"There are worse things than dying, especially where the Ges-
+tapo is concerned.  In fact, it would be easier if he died, espe-
+cially because it would be apparent that he died from his inju-
+ries."
+"You're going to kill him?"
+"I'm tempted," said Guy.  "It would solve a lot of problems.
+No," he said hastily when she recoiled.  "I'm not.  If the Allies
+went to all this trouble to send him, he's here for something
+important.  Has he told you what it is?"
+"No."
+"Never mind.  He'll have to eventually.  Do he still have his
+French papers?"
+"Yes."
+"Then I'll send Babbette.  Wew'll dye his hair.  I'll get his
+papers fixed.  Different clothes ..."
+"Hans and his uncle, a colonel general are coming from Berlin
+sometime after 5.  He just called."
+"For God's sake, Madeleine!"
+"I tried to put him off but he insisted.  What could I say?"
+It puzzled her as much as it angered Guy.
+"Nothing.  Nothing," he said.  "But we'll have to move fast if
+we're going to get him out by then.
+
+
+
+The luncheon given for Karl by Hans' commanding officer at the
+Caen fortress was something less than a success.  Ordinarily, fresh
+Dover sole, good wine and the excellence of the local cheese would
+have made up for a great deal.  But this day, little could compen-
+sate for the company of the division commander who was both stiff-
+necked and supercilious.  The fact that he also took obsequious
+delight in entertaining an aristocratic member of the general staff
+made things even worse.   It was further aggravated by their con-
+cern about Peter.
+And so it was with relief that Karl and Hans walked out into
+the chill of the early November sun.
+That relief faded at the sight of Erich von Feber's face as he
+hurried toward them.
+He stopped, saluted smartly, then looked at Hans.  "I need to
+speak with you, sir."
+"I'll wait in the car," Karl said and walked across the small
+square toward the staff car where Sergei was holding the passenger
+door open for him.
+"I'm sorry, sir," von Feber said, "but you need to know that
+the Gestapo is organizing a systematic search of the city.  The
+lieutenant who came out of the cellar with you has disappeared.
+The Gestapo thinks he's a spy and they want him badly."
+Hans looked away, his fingers tapping against his thigh.
+Von Feber waited.
+"Fritz Heiligmann told you?"
+"Yes."
+Hans turned and looked him full in the face. "It must have
+given him a great deal of pleasure."
+"He reveled in it," von Feber said bitterly.  "Said that he
+had warned me about you, that when they caught this man, they'd
+all the proof they'd need and you would be shot, which was no more
+than you deserved.  He was warning me because he didn't want me
+caught in the cross-fire.  Our battalion is not to be part of the
+search.  We won't even be informed.  Even the division commander
+won't be told until the last minute.  They're going to use mainly
+SS troops and the field police.  He told me to be careful.  Is this
+man a spy?"
+"I haven't the vaguest idea."
+"So he wasn't the one crying out in English in the cellar."
+Von Feber was looking at Hans intently.
+"If he were, it would have been my responsibility to report
+it."
+There was a long pause.
+"I still think, sir ...  You are going to be the special focus
+of this search.  Will you and the Colonel General be coming back
+into Caen?"
+"He and I are coming back into Caen to have dinner this eve-
+ning, alone," Hans said stiffly.  "At the Aldon.  Why?"
+"If they were to start the search this evening ..."  He took
+in a deep breath.  "Sir, I'm worried.  I think it would be safer if
+you dined at your headquarters.  But if you do need to go into
+Caen, I would suggest you take some motorcycle outriders with you.
+Even better, Schuster and I could come as well, in a second car.
+They wouldn't be able to bother you then.  If you like, I could
+arrange it."
+"Thank you," Hans said carefully.  "If I think it's necessary,
+I'll call you."
+"Schuster and I are having dinner together.  You can contact
+me at his headquarters."   He snapped Hans a quick salute and
+turned away.
+LAYOUT 000
+
+STANDARD2
+B
+<

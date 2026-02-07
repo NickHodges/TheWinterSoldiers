@@ -1,0 +1,256 @@
+# Chapter 3
+Captain Michael Paul Cosgrove Compton, DSO, DSC, RN (Ret) was
+a tall, lean, distinguished looking man with a full head of graying
+black hair.  He had impeccable taste and his office reflected that.
+As section chief for MI6 in charge of gathering intelligence from
+all over Europe and he had an office in Whitehall that suited that
+position.  It also suited him personally.  Though his years in the
+cramped quarters of a Royal Navy ship were long over, he still
+relished the spaciousness of this room, especially the high ceil-
+ing, and he had made that space both elegant and comfortable.
+The two outside walls were paneled, the other two were covered
+floor ceiling with bookcases filled almost to overflowing with
+books, almanacs, atlases and file boxes.  The tall narrow windows
+were decorated with long pull-back drapes of heavy gun-metal blue
+damask.  Two large antique Persian rugs hid most of the hardwood
+floor and a pair of worn leather arm chairs faced him across a mas-
+sive neo-classic desk of great age.  He was fond of that desk.  It
+had been in his family for generations and he remembered seeing
+both his grandfather and his father use it.  Like those two men
+before him, he kept the surface clear, feeling that helped keep his
+mind focused on what he was doing.
+Even the one item in that office which was peculiarly neces-
+sary to the position he held was not government issue.  It was a
+blue porcelain-tiled stove, an antique which Michael Compton used
+not only to ward off the cold and damp of English winters but to
+burn papers and files best not kept.
+He felt he was dealing with such a document now.
+His chief aide, Emlyn Rhys, had brought it straight to him
+from the latest mail bag to arrive by air from Stockholm, knowing
+both that he would want to see it right away and that he would not
+want anyone else to see it.  The envelope bore Swedish stamps but
+the woman's name and the address on it were written in John
+Richter's bold polyglot script.  That particular name and Stockholm
+address
+had been given to John Richter and only John Richter just
+before he made his hair-raising "escape" back to Germany, an
+"escape" which had been engineered for him on Michael's orders by
+that self-same Emlyn Rhys.
+Michael had had no word from John since.  There was only the
+occasional Red Cross letter which got through to his mother.
+He opened the letter with great anticipation.
+
+Dear Michael,
+
+When you read this, I will be dead and, if I've been
+successful, you should know about it.  Even if they sup-
+press my name, the explosion itself will be too big to
+hide.
+I can't work for MI6 any longer.  Russia made a German
+of me in a way I would never have thought possible. Not a
+Nazi, a German.  I cannot serve two masters. How does the
+Bible put it?  If you try you will come to hate the one
+and cleave to the other?  Something like that. Fortunately
+I'm not at the point where I hate anyone except the people
+who got all of us into this war.  For that I blame the
+lily-livered Chamberlain and the moral exhaustion of the
+French almost as much as I blame the venal creatures here,
+because they could have stopped it.  You know that.  I
+know that.  And it could have been done as late as 1940.
+I told you how and where, well before the invasion of
+France.
+But it's too late for recriminations, even if they
+served some purpose, which they don't.  Since Hitler
+wasn't stopped before, he must be stopped now.  I have the
+perfect opportunity to do that.  It is a blow I strike
+for Germany, not for Germany as it exists now, but for
+what Germany really is and what it will be again.  It also
+happens to be a blow for England, though that is not why
+I'm doing it.
+This war has to be stopped before the Russians overrun
+Germany and all of Europe.  They have the man-power and,
+thanks to you and the Americans, they also have the equip-
+ment. Germany can't hold them at bay forever, perhaps not
+even long enough for the western Allies to invade the con-
+tinent in enough force to stop all of Europe from being
+bolshevized.  My living cannot affect that one way or the
+other, but my death can.
+You know I came back here because Annaliese had died
+and I blamed myself for it.  I felt that if it weren't for
+me, she wouldn't have been in an English hospital giving
+birth to our son when that bomb fell.  But I see now that
+you were right, that it wasn't anyone's fault, even mine.
+It was simply one of those terrible, senseless accidents
+of war.  The German bombs that killed her in England could
+just as easily have been British bombs killing her here.
+But even if I had been able to see that then, I still
+don't think I could have sat out the war over there,
+safely doing some dreary intelligence job when I could be
+here doing something active to end the war.  But that
+wasn't to be.  No Abwehr, no appointment to the General
+Staff, one of which we'd hoped for and either of which I
+was well qualified for.  Whether they didn't trust me
+after my "escape" because of my relationship to you or
+because they needed a tank commander in Russia more than
+they needed a paper-pushing intelligence analyzer (even
+one with an intimate knowledge of England and the
+English), I couldn't say.  But the reason doesn't matter
+now. All that matters is that Russia is where I went and
+it was there that I finally saw what this war is in all
+its barbarity.  It has changed me irrevocably.
+Therefore I am resigning from MI6, as of this moment,
+though I shall consider myself bound by the Official
+Secrets Act as regards anything I saw or learned in that
+connection for as long as I live.
+My only regret is that I won't be able to see my son
+grow to manhood.  But if what I do is instrumental in end-
+ing this war, it may mean that he won't have to grow up to
+fight another.  So, more than for any single person, I'm
+doing this for him. I couldn't stop the bombs that killed
+his mother almost as he was being born but I can set off
+another that will stop that sort of death from continuing
+to rain on the children of both sides.  I love him.  I
+want the best for him. I especially want him to have a
+long, productive and peaceful life.   Make sure he knows
+that and also that when I ran, it was not from him.
+Please give this letter to Mother when the time is
+right.  I want her to be able to accept and understand
+what I have done.  I've never been good at showing her how
+I feel about her, really about showing emotion to anyone,
+except Annaliese.  British stiff upper lip?  Prussian sto-
+icism that Mother's American openness couldn't overcome?
+Whatever it is, I'm sorry for it now.  And though I
+rarely, if ever, have said it, I hope she knows what a
+wonderful mother she was and is to me and how much I love
+and respect her.  And James, too, as a brother, though
+he'd snort at hearing that.  I know that together you and
+Mother will take good care of Punch.  James and Annabelle,
+too. Smartest thing old James ever did was to marry her.
+Be happy together, all of you, and love my son for me.
+Love,
+Hans
+
+
+For Michael, the name at the end said everything.  John
+Richter was no longer John.  He had become Hans, the diminutive of
+the German Johann, which was what his father and every German in
+his family had always called him.  But it was never what he called
+himself, until
+now.
+Michael Compton put down the letter from his godson-turned-
+stepson, John Michael Richter, and sat staring at nothing for a very
+long time.
+
+Ten days later he was at that same desk, trying to keep his mind
+on a very dull report he had to have in hand before a meeting that
+was only ninety minutes away.  He wasn't finding it easy to concen-
+trate.
+There hadn't been so much as a hint of an earth shattering explo-
+sion anywhere.  There was nothing in the German newspapers, nothing
+in their propaganda broadcasts, not a sign, not a whisper.  And there
+was nothing from Ultra either.
+Michael finally gave up on the report and sat back in his chair.
+He found this far worse than waiting to go into battle because at
+least in battle there was the hope of victory.  With this, there was
+only the sureness of death - John's death - and the thought of that
+was beyond bearing.
+Michael hadn't told Anne because he didn't know what to tell her.
+She knew he was keeping something from her and was upset. She'd
+asked, of course, with a coldness that was frightening, but all he'd
+said was that it was the pressure of work.
+That this was such a frantic puzzle to Michael Compton was ironic
+because not only was he supposed to have Germany, France, and all of
+occupied Europe at his fingertips, but he was one of very few men
+privy to the intelligence gathered by Ultra, the miracle that per-
+mitted the British, sporadically at least, to decode German military
+transmissions.  He knew that if something of that magnitude had hap-
+pened in Germany, it would not have been kept from Ultra, at least
+not for long.  They would need to move troops.
+He leaned his head back and shut his eyes.
+There was a discrete tap at the door.
+"Come!" he called wearily without moving.
+"I'm sorry to disturb you, sir."  It was his secretary.
+"Yes, Miss Cruickshank?" he asked, putting on the semblance of a
+smile.
+"I am sorry to disturb you, but Mr. Greerson said you wanted to
+see these as soon as they came."
+Michael glanced at the small stack of German periodicals and was
+just looking up to thank her when something caught his eye.  It took
+a great effort to keep his face set and simply say, "Thank you."
+His eyes were so hard on her that she reddened slightly, and
+stammered as she said, "The Ministry just called to say that the
+meeting scheduled for this afternoon has been delayed until 6 o'clock
+this evening and will you still be able to attend?"
+"Since I'm to be the main event, it was kind of them to ask." He
+regretted the words the minute they were out of his mouth because
+sarcasm always flustered her.
+For once he was surprised.  There was a small smile and the sug-
+gestion of a twinkle in her eye as she said, "Is that what you would
+like me to tell them, sir?"
+He smiled at the thought of what the reaction to that would be.
+"Just tell them I'll be there."
+"Very well, sir."
+As the door closed behind her, he reached for the top one, a copy
+of Signal, the German propaganda magazine.  Staring out at him from
+the cover was the face of John Richter.  The picture had been taken
+from below both to make him look more imposing and to emphasize the
+Knight's Cross which hung in the inverted V formed by his collar.
+The silver and black cross was now topped with the silver of the
+Swords and Oak Leaves.
+The picture upset him.  John was far too thin, but he was also
+tougher looking, and older.  The last eighteen months had aged him.
+Colonel Johann Richter, the caption screamed at him from the
+lower right corner, Hero of Stalingrad.  Michael felt sick.  It was
+no wonder that John looked the way he did.  And if he had been given
+the Swords and Oak Leaves, he had done something monumental, some-
+thing terrible and monumental.
+He opened the magazine and riffled through the pages before stu-
+dying the article at length.  When he finally looked up, his face was
+bleak.
+
+"Michael."  Anne Compton looked across at her husband.  Her eyes
+were stricken.  "He looks awful."
+They were sitting in the morning room of their Eaton Square house
+where the luxury of a small coal fire was waging a losing battle
+against the late February chill.
+Michael nodded in silent agreement.
+"So thin," she said wistfully.
+"Considering where he's been, I'm surprised he looks as well as
+he does."
+"Yes." Her voice firmed.  "We're lucky he's still alive."  Then
+she opened the magazine to the place he'd marked with a paper clip
+and studied the pictures and read the article in silence.
+Michael leaned his head against the back of the chair.  His hand
+was loose around the glass on the arm rest.  He knew what she was
+seeing, what she was reading.  The pictures and the text had printed
+themselves onto his memory.  They explained everything.  John in the
+Chancellery with Adolf Hitler, head bent forward as the Fuehrer put
+the ribbon over his head while Goering, Himmler and Goebbels stood in
+the background.  All those men were together in one room to honor the
+symbolic Hero of Stalingrad.  An explosion there, at that moment,
+might well have ended the war.  He was certain that that John had
+intended to blow himself up and take the whole lot with him.
+Michael was in parts appalled, sad, angry and very proud.  But
+over it all was the profound and utterly selfish relief that he had
+failed.
+He shifted in the chair, restless suddenly, and his hand automat-
+ically tightened around his glass.  He lifted it and took a long
+drink.
+Finally she closed the magazine. "What else is there, Michael?"
+He heard the combination of resignation and anxiety in her voice.
+"There's more. Something about John that you're not telling me."
+He saw tears in her eyes that didn't fall.  "He really is all right,
+isn't he?"
+He nodded slowly, then pulled the letter out of his jacket pocket
+and leaned forward to hand it to her.
+The color drained from her face as she read it, and when she was
+finished, she sat looking down at the cover of the magazine for a
+long time.  "He failed, didn't he."  The words were very small.
+"Yes."
+"Thank God."  She burst into tears.
+LAYOUT 000
+
+STANDARD2
+B
+
+<
