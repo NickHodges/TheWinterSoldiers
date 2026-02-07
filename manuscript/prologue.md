@@ -1,8 +1,5 @@
 # Prologue
 
-
-
-
 It was bitterly cold and all three men huddled together on the
 windward side of the stretcher in a futile attempt to screen the
 man on it from the force of a wind which had already gusted across
@@ -13,28 +10,28 @@ Major Georg Brandt stuck a gloved hand in each armpit and
 hunched his shoulders as he stamped his feet in a futile attempt
 the circulation. Nothing helped but then nothing could, not even
 the fleece-lined flight boots he was wearing, because the cold was
-too relentless.  It had become a permanent ache, always there on
+too relentless. It had become a permanent ache, always there on
 some subliminal level, even when it wasn't acute.
-"Where's the Generaloberst?"  Hauptmann ___________Schuster
-jerked an angry thumb toward the stretcher.  "If we don't get him
+"Where's the Generaloberst?" Hauptmann ___________Schuster
+jerked an angry thumb toward the stretcher. "If we don't get him
 onto that plane soon, he's going to die."
 "We'll all die if we don't get onto that plane soon," Georg
-Brandt said mildly.  Schuster sounded as if there was something
-unususal about dying and he couldn't imagine why.  Everyone did it
-sooner or later and in this hell hole it was always sooner.  Every-
-one is Stalingrad was dying.  It was simply a question of how long
-it was going to take each man to do it.  Amazing that so many of
-them had lasted this long.  The old cliche?  Hope springs eternal
-no matter how hopeless things are?  Tell a hundred men about to go
+Brandt said mildly. Schuster sounded as if there was something
+unusual about dying and he couldn't imagine why. Everyone did it
+sooner or later and in this hell hole it was always sooner. Every-
+one is Stalingrad was dying. It was simply a question of how long
+it was going to take each man to do it. Amazing that so many of
+them had lasted this long. The old cliche? Hope springs eternal
+no matter how hopeless things are? Tell a hundred men about to go
 into battle that 99 will die and they'll all go happily, each sure
-that he'll be the one to survive?  Fools. He flapped his arms then
-refolded them across himself.  All of them fools if they were hop-
-ing for anything.  But then - he smiled a bitter little smile -
-these three were getting out, we're they, so perhaps there was some
-justification for it after all.   Despite everything, they'd man-
+that he'll be the one to survive? Fools. He flapped his arms then
+refolded them across himself. All of them fools if they were hop-
+ing for anything. But then - he smiled a bitter little smile -
+these three were getting out, were they, so perhaps there was some
+justification for it after all.  Despite everything, they'd man-
 aged to stay alive and beyond that even managed to keep Hans
 Richter alive just long enough to let his uncle, Generaloberst Karl
-von der Greif, play  deus ex machina, dropping from the sky in his
+von der Greif, play deus ex machina, dropping from the sky in his
 corrugated JU 52 carrying all the medical supplies his plane could
 hold, supposedly to look into the 6th Army's desperate supply situ-
 ation, all perfectly logical, of course, since he happened to be
@@ -42,173 +39,173 @@ the Quartermaster General of the German Army, eventhough everyone
 knew there was nothing that could be done unless the supply lines
 could be shortened to a degree that would be nothing short of mira-
 culous, or a thousand more pilots and planes could be hatched
-within the next 24 hours.  But logical still since though the log-
+within the next 24 hours. But logical still since though the log-
 istics were increasingly impossible, Berlin still believed that a
 stiff upper lip and orders to stand fast and never retreat could
 accomplish everything and therefore would rejoice in Karl von der
 Greif's junketing, feeling sure that he was applying the necessary
-starch.  If only they knew.  That was the last thing he would be
-doing.  The real reason he'd come was to urge Genearl Paulus to
+starch. If only they knew. That was the last thing he would be
+doing. The real reason he'd come was to urge General Paulus to
 turn on Adolf Hitler, to make a broadcast denouncing the Fuehrer's
-military insanity and ask the Weharmacht everywhere to rise against
+military insanity and ask the Wehrmacht everywhere to rise against
 him, ending by committing the ultimate defiance and surrendering
 the Sixth Army to the Russians, saving what few men were left
-before it was too late for them all.  But there was a reason even
-beyond that.  The Generaloberst had come here to find Hans Richter
+before it was too late for them all. But there was a reason even
+beyond that. The Generaloberst had come here to find Hans Richter
 and bring him out and he had brought a doctor with him to make sure
-he got out alive.  Major-Doctor Brandt avoided looking down at the
-stretcher.  It was going to be a near thing.
+he got out alive. Major-Doctor Brandt avoided looking down at the
+stretcher. It was going to be a near thing.
 He stamped his feet angrily, ignoring the exquisite pain this
 was beginning to cause, and wished Karl success with a ferocious-
 ness even he found surprising, a ferociousness born during 48 hours
-in Stalingrad.  And at the same time he damned Goering for insist-
+in Stalingrad. And at the same time he damned Goering for insist-
 ing that the Luftwaffe could supply the whole of the surrounded
 Sixth Army despite their being thousands of miles from the German
 frontier which in turn gave Hitler just the excuse he needed for
 ordering Paulus to stand fast and fight when the army still could
 have broken out of the noose the Russians were tightening around
-it.  Supply a whole goddamn army when there didn't begin to be
-enough planes and pilots, let alone fuel?  And even if that hadn't
+it. Supply a whole goddamn army when there didn't begin to be
+enough planes and pilots, let alone fuel? And even if that hadn't
 been the case, fly in supplies and fly out the wounded while the
 Russians were concentrating their artillery and fighters to prevent
-just that?  And to compound the felony, Goering's Folly was killing
+just that? And to compound the felony, Goering's Folly was killing
 off too many of the precious few pilots they did have and their
 planes with them which meant that there were even fewer planes and
-pilots to do an already impossible job!  Of course, every day there
+pilots to do an already impossible job! Of course, every day there
 were fewer and fewer men in Stalingrad to use those supplies,
 weren't there, so one would tend to think it might all even out,
 but it never did, did it. It couldn't while the Russians were oper-
 ating on home ground with short supply lines while the German sup-
 ply lines were ridiculously long, and strained beyond all logical
-limits.  It was stupid.  All so stupid.  And now all these men were
-dying because of that stupidity, the cream of the Whermacht, the
+limits. It was stupid. All so stupid. And now all these men were
+dying because of that stupidity, the cream of the Wehrmacht, the
 whole of the Sixth Army dying on its feet, sans clothes, sans food,
-sans ammuniution, sans everything.  Clothes were being stripped
+sans ammunition, sans everything. Clothes were being stripped
 from the dead and put on by the living before the bodies had
-cooled.  The horses needed for transport were long gone because
-they were needed even more for their meat.  Rats were the newest
+cooled. The horses needed for transport were long gone because
+they were needed even more for their meat. Rats were the newest
 delicacy, rats fat from feeding on the dead, feeding the living.
 Cannibalism once removed.
 He turned to look out, willing the plane to come but there was
 just empty runway - and that visible only sporadically through
-gusts of snow - the edges marked by airplane wreckage.  The Russian
+gusts of snow - the edges marked by airplane wreckage. The Russian
 shelling had stopped for the time being and men were out with picks
 and shovels, tryin g to fill in the morning's allotment of craters,
 men who were too weak for such work, especially in the terrible
-cold.  But they did it anyway because without that runway, they'd
+cold. But they did it anyway because without that runway, they'd
 have no chance for life at all.
-Suddenly there was a roar and the men scattered.  One plane
+Suddenly there was a roar and the men scattered. One plane
 came in, then another and another until there were five bumping
 across the uneven surface, each pilot praying that he wouldn't
-burst a tire because there were no spares.  Not in Stalingrad.  So
-this was the noon convoy.  God...  Too small.  Far too small.  But
+burst a tire because there were no spares. Not in Stalingrad. So
+this was the noon convoy. God... Too small. Far too small. But
 then it always was.
 "Is one of those planes ours?" asked Schmidt anxiously.
-"Yes."  Even if it wasn't the same plane, one of them would be.
-theirs. Rank doth have its privilege.  Thank God.
+"Yes." Even if it wasn't the same plane, one of them would be.
+theirs. Rank doth have its privilege. Thank God.
 "At least the Generaloberst didn't keep it sitting around,
-waiting his convenience.."  Schmidt's voice had turned gloomy.
+waiting his convenience.." Schmidt's voice had turned gloomy.
 "Or for the Russians to blow it off the runway," Schuster said
 with a flash of bitterness that was unusual for him.
 "He would have sent to plane back for more supplies, Russians
-or no," Georg Brandt said wearily.  "That's just the way he is."
+or no," Georg Brandt said wearily. "That's just the way he is."
 Karl von der Greif always had his priorities right, even where he
-himself was concerned.  Maybe especially where he himself was con-
+himself was concerned. Maybe especially where he himself was con-
 cerned.
 There was a drone that was the sound of speed and Georg
-Brandt's head jerked up eventhough he knew what he'd see.  Their
+Brandt's head jerked up eventhough he knew what he'd see. Their
 own fighters - Messerschmidts - buzzing around, staying high,
-waiting.  Baby chicks taking care of the mother hens.  A reversal
-of the usual situation.  But then that was what war was, wasn't it,
+waiting. Baby chicks taking care of the mother hens. A reversal
+of the usual situation. But then that was what war was, wasn't it,
 a reversal of everything usual until the unusual became the usual
-and even the bizarre became the norm.  Killing rewarded...
-"I wish he wouldn't do that."  Schmidt sounded irritated.
+and even the bizarre became the norm. Killing rewarded...
+"I wish he wouldn't do that." Schmidt sounded irritated.
 Hans Richter was lying on the stretcher, wasted fingers pluck-
 ing absently at the single button left on the tattered great coat,
 one so large for him that he had been swathed in it as if he were a
 baby and it was a bunting.
-"No, Has," Georg said gently.  Then he hunkered down and put
+"No, Has," Georg said gently. Then he hunkered down and put
 the exposed claw of a hand back inside the coat before tightening
-it more firmly across his chest, thinking as he did that tehre was
-nothing to Hans.  God knows he wasn't big, no more than medium
+it more firmly across his chest, thinking as he did that there was
+nothing to Hans. God knows he wasn't big, no more than medium
 height and slim even in the best of times and this was scarcely the
-best of times.  Still, he was nothing.  A bag of bones.  And fever.
+best of times. Still, he was nothing. A bag of bones. And fever.
 He readjusted the straps, then tightened them down, too, to hold
 both Hans and the coat in place.
 There was no reaction.
-Georg Brandt stood and looked out again.  The wind had died
+Georg Brandt stood and looked out again. The wind had died
 momentarily he could see the supply planes being unloaded at double
 time at the other end of the field where the control tower still
-rose out of the rubble that had been the terminal.  But though his
+rose out of the rubble that had been the terminal. But though his
 eyes took it all in, he didn't really see any of it because the
 vision of that cadavarous face had seared itself into his brain.
-Sweat turning to hoar frost on the scraggle of black beard.  And
-those eyes.  Staring.  Vacant.  Nothing.  At least he wasn't in any
+Sweat turning to hoar frost on the scraggle of black beard. And
+those eyes. Staring. Vacant. Nothing. At least he wasn't in any
 pain, thanks to the special supply of morphine Karl van der Greif
 had had him carry in in his pocket.
 "...live?"
-The voice jerked him back.  "What did you say?"
-"Will he live?"  Schuster asked it more emphatically this time
+The voice jerked him back. "What did you say?"
+"Will he live?" Schuster asked it more emphatically this time
 and Georg Brandt was forced to look at him, really look at him,
-something he'd been trying not to do.  Even his mother wouldn't
-have recognized him.  The cherubic-faced fire-plug of a boy he'd
-seen in France in l940 had disappeared.  Instead what he saw looked
+something he'd been trying not to do. Even his mother wouldn't
+have recognized him. The cherubic-faced fire-plug of a boy he'd
+seen in France in l940 had disappeared. Instead what he saw looked
 like a scarecrow that had been left out in the field far too long.
 Schuster was filthy, his face weathered, lined, cheeks sunken, eyes
-red-rimmed and the clothes...  The clothes.  God.  The remnants of
+red-rimmed and the clothes... The clothes. God. The remnants of
 various different Wehrmacht uniforms simply hung off him, including
 a great coat which was held together across the front by baling
-twine.  Everyone in Stalingrd looked like that, more or less, but
-despite everything, they were still soldiers.  The butt of Schus-
+twine. Everyone in Stalingrad looked like that, more or less, but
+despite everything, they were still soldiers. The butt of Schus-
 ter's rifle might be scarred and cracked and the sling which hung
 it over his shoulder might be woven from rags, but the rifle itself
 was clean, loaded and ready to fire.
 "I hope so."
-"Hope?!"  It was a roar from Schmidt and suddenly Georg
+"Hope?!" It was a roar from Schmidt and suddenly Georg
 Brandt's lapels were grabbed and he was hauled against a bony
-frame.  The stink of rotten teeth made him flinch.  "You'd better
-do more than hope, Herr-Doctor-bloody-Brandt.  If it hadn't been
+frame. The stink of rotten teeth made him flinch. "You'd better
+do more than hope, Herr-Doctor-bloody-Brandt. If it hadn't been
 for him and the crazy cavalry-to-the-rescue charge he led into the
 Barricady tractor factory, Schuster and I would have been rat food
-along with about 30 others!  You saved him in France.  We saw you
-do it.  Just do it again!"
-Georg jerked back and tore himself away.  "France?  What in the
-hell has this got to do with France?  In France he was healthy.
-You all were.  Healthy and at least 30 pounds heavier.  He had
+along with about 30 others! You saved him in France. We saw you
+do it. Just do it again!"
+Georg jerked back and tore himself away. "France? What in the
+hell has this got to do with France? In France he was healthy.
+You all were. Healthy and at least 30 pounds heavier. He had
 reserves then, and there was a well-equipped field hospital com-
-plete with bandages and medicines, for God's sake.  Remember
-medicine?  Bandages?" he asked sarcastically and then turned away
-because he couldn't face what they had become.  "There aren't any
-bandages here, are there."  His eyes were stinging and he had to
+plete with bandages and medicines, for God's sake. Remember
+medicine? Bandages?" he asked sarcastically and then turned away
+because he couldn't face what they had become. "There aren't any
+bandages here, are there." His eyes were stinging and he had to
 clear his throat. "Or at least damn few and those are made of
-paper.  Changed only twice a week, if that."  He shuddered.  "And
+paper. Changed only twice a week, if that." He shuddered. "And
 you know as well as I do that if you and Hauptmann Schuster hadn't
 found a clean white shirt - and God alone knows where you found it
 in that filthy hell hole - to use to bandage him, he would have had
-no chance at all.  And before that...  They'd stuck him out in the
-hall, hadn't they."  He was facing them, angry again, his face in
+no chance at all. And before that... They'd stuck him out in the
+hall, hadn't they." He was facing them, angry again, his face in
 Schmidt's and this time it was Schmidt who was backing off, looking
 away.
-"You know the hall, don't you," Georg Brandt hissed.  "The
+"You know the hall, don't you," Georg Brandt hissed. "The
 place where they put the cases that are too far gone to help, the
 ones needing too complicated an operation or too many bandages or
-medicines that simply don't exist here.  The theory seems to be
+medicines that simply don't exist here. The theory seems to be
 that our heroic fighting men ought to be put out of the misery
 humanely, and the hall is the only way to do that since who would
-be willing to kill each of them outright?  Especially since it
+be willing to kill each of them outright? Especially since it
 would have to be done with a knife because bullets are in too short
 supply to waste shooting even one into the nape of the neck of a
 man who's dying anyway, even if someone could be found who had the
-stomach for it.  All those precious bullets have to be saved for
-living Russians, don't they.  So our wounded heroes of Stalingrad
-get put into the hall,  and as more and more come in they're moved
+stomach for it. All those precious bullets have to be saved for
+living Russians, don't they. So our wounded heroes of Stalingrad
+get put into the hall, and as more and more come in they're moved
 farther and farther down that hall to where it opens out onto noth-
 ing, moved along until they're exposed enough to freeze to death.
 "Hans was about half way down that hall when you and
-Hauptm,annb Schuster found him, wasn't he.  I know he was because
-the doctor told me all about it.  How you two came and raised hell
+Hauptmann Schuster found him, wasn't he. I know he was because
+the doctor told me all about it. How you two came and raised hell
 until they let you take him and you had to take him out of there
-yourselves because there was no one to help you.  And you had to
+yourselves because there was no one to help you. And you had to
 take care of him yourselves, didn't you. Bandaging him. Feeding
 him. Feeding him the biggest fattest damn rats you could find,
 sometimes fighting other men to get them for him."
@@ -216,60 +213,60 @@ Schuster had suddenly seemed to find his feet quite fascinating
 and so his nod was slow.
 "And you had to have fed him some of your own rations as well,
 when you got any, because he was officially dead so he wasn't
-allowed a ration.  And you did that eventhough you both needed all
+allowed a ration. And you did that eventhough you both needed all
 the food you could lay your hands on just to stay alive yourselves.
 And did you use any of that precious white shirt to bandage that
-shoulder wound of yours, Hauptmann Schuster?   And Hauptmann
-Schmidt, as for your ... intestinal problem..."   To call it that
-was a kindness.  Unless he missed his guess, Schmidt was in the
+shoulder wound of yours, Hauptmann Schuster?  And Hauptmann
+Schmidt, as for your ... intestinal problem..."  To call it that
+was a kindness. Unless he missed his guess, Schmidt was in the
 beginning stages of dysentery and so shouldn't be allowed on that
-plane.  It wouldn't do to carry dysentery back to Berlin and let
+plane. It wouldn't do to carry dysentery back to Berlin and let
 the people at home know just how bad things really were in Stalin-
-grad, would it.  Oh, no.  Of course not.  But in one of his few
+grad, would it. Oh, no. Of course not. But in one of his few
 lucid moments, Hans had refused to leave without these two and it
-was easy to understand why.  The way they had stayed with him, kept
+was easy to understand why. The way they had stayed with him, kept
 him alive, though just barely, in one of those stinking cellars
 that passed for hospital wards in Stalingrad these days. No lights
-because lighting the darkness was a luxury.  The fuel couldn't be
-spared to run the generators.  Or the autoclaves either, for that
-matter.  So there was just a very occasional guttering candle and
+because lighting the darkness was a luxury. The fuel couldn't be
+spared to run the generators. Or the autoclaves either, for that
+matter. So there was just a very occasional guttering candle and
 surgical instruments sterilized in alcohol that was used and reused
-because that was in short supply as well.  And hands sterilized in
+because that was in short supply as well. And hands sterilized in
 that same alcohol for bare-handed surgery because the gloves had
-worn out long ago.  The only things there were plenty of were the
+worn out long ago. The only things there were plenty of were the
 wounded, the never-ending lines of the wounded and the starving,
-and cold and filth and stink.  Would that stink ever leave?  It had
+and cold and filth and stink. Would that stink ever leave? It had
 sunk into his hair, his clothes, his mind, a mixture of unwashed
-bodies, corruption, blood, incontinence, death and fear.  Odd.
+bodies, corruption, blood, incontinence, death and fear. Odd.
 He'd never realized that fear had a smell, except to horses.
-"And if he does live, Herr Major,"  Schuster was asking in the
+"And if he does live, Herr Major," Schuster was asking in the
 flat hard voice that was now his, "what about his leg?"
-Georg sighed.  "So far it's only a simple infection."  Horrible
-but simple, at least as far as the leg itself was concerned.  "If
-gangrene doesn't develop..."  He shrugged and started stamping his
+Georg sighed. "So far it's only a simple infection." Horrible
+but simple, at least as far as the leg itself was concerned. "If
+gangrene doesn't develop..." He shrugged and started stamping his
 feet as the other two paced slowly through the long silence.
-"Hurry!"  They turned as one as Generaloberst Karl von der
-Greif's voice preceeded him around the corner.  "The plane'll be on
-the way.  Taxiing down here to pick us up.  Sorry for the cold, but
-there ... too many wounded over there."  He gestured toward what
-was left of the terminal.  "Some nasty incidents.  Strecther cases
-trampled by walking wounded rushing the planes.  Others, too."  His
-disgust was obvious.  "Men not wounded at all."  He looked down at
+"Hurry!" They turned as one as Generaloberst Karl von der
+Greif's voice preceeded him around the corner. "The plane'll be on
+the way. Taxiing down here to pick us up. Sorry for the cold, but
+there ... too many wounded over there." He gestured toward what
+was left of the terminal. "Some nasty incidents. Strecther cases
+trampled by walking wounded rushing the planes. Others, too." His
+disgust was obvious. "Men not wounded at all." He looked down at
 the stretcher and then quickly away as if the sight was too much to
-bear.  "So be quick."  He flapped an impatient hand.  "When the
-plane turns, the co-pilot will open the door.  Be ready to take the
-stretcher, Brandt.  And help him, please, Pflueger." He looked
-toward his aide who had followed in his wake.  The man nodded
+bear. "So be quick." He flapped an impatient hand. "When the
+plane turns, the co-pilot will open the door. Be ready to take the
+stretcher, Brandt. And help him, please, Pflueger." He looked
+toward his aide who had followed in his wake. The man nodded
 quickly, put the handle of a brief case over his wrist and moved
 toward the head of the stretcher.
-The plane was coming.  They could all hear it.
-"Hauptmann Schmidt.  Hauptmann Schuster," the Generaloberst
-snapped, "Rifles at the ready.  We're going to cover them.  Shoot
+The plane was coming. They could all hear it.
+"Hauptmann Schmidt. Hauptmann Schuster," the Generaloberst
+snapped, "Rifles at the ready. We're going to cover them. Shoot
 anyone we have to."
 They all looked at him in astonishment and he looked back, his
 face grim, set, as he drew his own pistol and pulled back on the
-slide to put a bullet into the chamber.  "That's an order."
-Schuster and Schmnidt unslung their rifles as if in a bad
+slide to put a bullet into the chamber. "That's an order."
+Schuster and Schmidt unslung their rifles as if in a bad
 dream, their eyes darting this way and that.
 The plane taxied into sight.
 "Go!' The Generaloberst ordered and Georg Brandt and Pflueger
@@ -279,8 +276,3 @@ the Generaloberst moved between the them and a group of men who
 were running after the empty plane, shouting and waving angry
 fists.
 They had to shoot.
-LAYOUT 000
-
-STANDARD2
-B
-<
