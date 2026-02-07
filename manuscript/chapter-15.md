@@ -1,300 +1,392 @@
 # Chapter 15
+
 "Gaston said you wanted to see me." Madeleine was standing in
 the hallway as Guy came back from the storeroom.
-"Yes. Come on in." He led the way to his office and shut the
+
+"Yes.  Come on in."  He led the way to his office and shut the
 door after them.
-"What happened last night?" She asked. "When Gaston came in,
-he was limping. All he'd say was that he tripped and fell."
-Guy just nodded. Madeleine's brother, Gaston, had fallen
-going over a wall while getting away from the Milice. It had been
+
+"What happened last night?" She asked.  "When Gaston came in,
+he was limping.  All he'd say was that he tripped and fell."
+
+Guy just nodded.  Madeleine's brother, Gaston, had fallen
+going over a wall while getting away from the Milice.  It had been
 a near thing.
-"I know he works for you. Not here." Her hand swept away the
-restaurant. "The work he does here is fine. It's the other work
-he does for you. It's too dangerous."
+
+"I know he works for you.  Not here."  Her hand swept away the
+restaurant.  "The work he does here is fine.  It's the other work
+he does for you.  It's too dangerous."
+
 "And to think, Gaston complains I don't let him do enough,"
 Guy said.
+
 "He's just a boy. He's too young for this war."
+
 "No one is too young for this war."
+
 Her eyes filled with tears and he cursed himself.
+
 "I know what happened to your son, Madeleine."
+
 She looked away. "How long have you known?"
-"Not long." Until four days before, Guy hadn't even known
+
+"Not long."  Until four days before, Guy hadn't even known
 that she had a son.
+
 "How did you find out?"
+
 "Sources."
+
 "Why did you bother your sources?"
+
 "Because I needed to know why you refused to get involved."
-"To make sure I hadn't been turned?" She was looking at him
+
+"To make sure I hadn't been turned?"  She was looking at him
 at last and she was very angry.
+
 "No."
+
 "How can you be sure?" she asked.
-"My God, Madeleine. It never occurred to me that you'd spy
-for the Germans. It's just that you'd changed. I wanted to know
-why." He paused. "It's far too small a thing to say in the face of
-what happened to you, but I am sorry."  He was more than sorry. He
-had feelers out. It he ever found out where this Pierre had run
+
+"My God, Madeleine.  It never occurred to me that you'd spy
+for the Germans.  It's just that you'd changed. I wanted to know
+why." He paused.  "It's far too small a thing to say in the face of
+what happened to you, but I am sorry."   He was more than sorry. He
+had feelers out.  It he ever found out where this Pierre had run
 to, Pierre would never run again, anywhere.
+
 Her only answer was a slight clearing of the throat.
+
 "But you need to understand that as much as you want to, as
-much as you deserve to, you can't stay out of this war. No one
-can. People are beginning to ask me questions about you, about why
-you're seeing a German. Especially the family. I just shrug and
+much as you deserve to, you can't stay out of this war.  No one
+can.  People are beginning to ask me questions about you, about why
+you're seeing a German.  Especially the family.  I just shrug and
 that makes them think that because you're working for me, you're
-also working with me. But if that assumption starts to change
+also working with me.  But if that assumption starts to change
 there is little I can do."
+
 Her face was bleak.
+
 "Your colonel is coming in tonight."
+
 She nodded.
+
 "So is the Gestapo, in strength."
+
 "So?"
+
 Guy concentrated on making concentric doodles in the margin of
 the list in front of him. "The new head of the Caen Gestapo station
-is an effete and very unpleasant major named Pfister. From their
+is an effete and very unpleasant major named Pfister.  From their
 point of view, he's a distinct improvement over the idiot he
-replaced, which is unfortunate. He's bringing two men with him. I
+replaced, which is unfortunate.  He's bringing two men with him. I
 assume they're body guards, since they'll be staying in the bar."
+
 "Look at me," she said.
+
 He looked up.
-"I know you. Something's wrong. What is it?"
-His eyes went back to his doodles. "I just learned that
+
+"I know you.  Something's wrong.  What is it?"
+
+His eyes went back to his doodles.  "I just learned that
 you're going to have to appear at Gestapo headquarters within the
-next few days, for questioning. I think he's coming in to get a
+next few days, for questioning.  I think he's coming in to get a
 look at you before he talks to you."
+
 He looked up and saw that her face was ashen.
+
 "Sit down." He came around the desk and put a chair behind
 her.
+
 Her legs gave way and she sat abruptly. "Why would they want
 to see me?"
-He put his hands on her shoulders. She was trembling. "I
+
+He put his hands on her shoulders.  She was trembling.  "I
 think he wants information about your colonel."
-"Why?  He's a good man and a good officer. Everyone seems to
+
+"Why?   He's a good man and a good officer.  Everyone seems to
 like him."
+
 "I don't know why, but they've been interested in him almost
-since he got here." He reached into the low credenza that ran
+since he got here."  He reached into the low credenza that ran
 along the wall and took out a bottle of calvados and a short water
-glass. "The point is, what do you intend to tell them?"
-"Thank God, there is nothing I can tell them. We never talk
+glass.  "The point is, what do you intend to tell them?"
+
+"Thank God, there is nothing I can tell them.  We never talk
 about the war."
+
 "I doubt they want to know about that. The Gestapo can find
 out about what he's done during the war from a great many people.
-I'm sure what they're after ... If the Gestapo wants information
+I'm sure what they're after ...  If the Gestapo wants information
 about a German officer, it has to be because they suspect him of
 being a subversive."
+
 "That's ridiculous."
-"Perhaps. But you'll know if that's what they suspect by the
-questions he asks. If that's it, he'll want personal information.
+
+"Perhaps.  But you'll know if that's what they suspect by the
+questions he asks.  If that's it, he'll want personal information.
 Who he sees, where he goes and who is there when he gets there.
-What has he had to say about the German government and the war. I
-know. I know." He waved her off. "You don't talk about the war,
+What has he had to say about the German government and the war.  I
+know.  I know." He waved her off.  "You don't talk about the war,
 but perhaps he has said something about war in general, about his
 attitude toward the war."
+
 "He doesn't like it."
+
 "That may be enough for them."
-She looked at him in amazement. "Why? No sane person likes
+
+She looked at him in amazement.  "Why?  No sane person likes
 this war."
-"The Gestapo isn't sane. It rules by fear. The greater the
+
+"The Gestapo isn't sane.  It rules by fear.  The greater the
 fear, the more their power, so they spend a great deal of time
-thinking of how to make everyone afraid. You are blameless in this
-war. You have done nothing. You shouldn't have to be afraid of
+thinking of how to make everyone afraid.  You are blameless in this
+war.  You have done nothing.  You shouldn't have to be afraid of
 them, but you are. That gives them power over you. I'll as you
 again, what will you tell them?"
-"His mother is American. She lives in London. Did you know?"
-"No. Of course not. How could I know? You won't talk about
-him. But the Gestapo may not know that. The Army would, but oddly
-enough the Gestapo doesn't have access to their files. So tell
-them that. What else?"
-"That's the only sort of thing I can tell them. And if the
+
+"His mother is American.  She lives in London.  Did you know?"
+
+"No.  Of course not.  How could I know?  You won't talk about
+him.  But the Gestapo may not know that.  The Army would, but oddly
+enough the Gestapo doesn't have access to their files.  So tell
+them that.  What else?"
+
+"That's the only sort of thing I can tell them.  And if the
 army already knows all about his family, it can't be very impor-
-tant." She shrugged. "I shall be a great disappointment to the
+tant." She shrugged.  "I shall be a great disappointment to the
 Gestapo."
+
 "Whatever they ask you, you need to seem to be cooperating.
 Answer what you can with plenty of detail."
-"And what if they ask me about you? That's what it could be
+
+"And what if they ask me about you?  That's what it could be
 about, you know."
-"Tell them about the black market. They know all about that."
-He was back at his desk. "They should. They're involved in it with
+
+"Tell them about the black market.  They know all about that."
+He was back at his desk. "They should.  They're involved in it with
 me. They give me protection in return for certain goods and favors,
 a lot of goods and more favors than I care to think about."
+
 "Then they would never hurt me."
+
 His hands slapped the desk so hard that it made her jump.
 "You're a fool. They protect me only as long as I'm useful to them.
 If I cease to be useful, or if it suits their purpose, the Gestapo
 would grind me under its heel and walk on as if I had never
-existed. I'm no protection. You have no protection when you're in
-there, except your wits. So think, damn you. Be as honest as you
-can. Tell as much truth as you can. Anything you know about his
-family, where he's lived, that sort of thing. And if they ask you
+existed.  I'm no protection.  You have no protection when you're in
+there, except your wits.  So think, damn you.  Be as honest as you
+can.  Tell as much truth as you can.  Anything you know about his
+family, where he's lived, that sort of thing.  And if they ask you
 about something you need to lie about, keep it simple and as close
-to the truth as possible. Small details are important because
-they're convincing. Bore them to distraction with true details."
+to the truth as possible.  Small details are important because
+they're convincing.  Bore them to distraction with true details."
 Beads of sweat popped out on his forehead.
-"You are frightened for me."
-"Yes, I'm frightened for you. Of course I'm frightened for
-you. It frightens me for all of us."
-She stood and leaned on the desk on her fingertips. "Then I
-shall have to be very good and very careful, for all of us."
-Guy studied her face, then smiled a slow smile. "Welcome
-back, Madeleine. I really am glad to see you."
 
-An hour later, Guy pulled his baeutifully laundered shirt
+"You are frightened for me."
+
+"Yes, I'm frightened for you. Of course I'm frightened for
+you.  It frightens me for all of us."
+
+She stood and leaned on the desk on her fingertips.  "Then I
+shall have to be very good and very careful, for all of us."
+
+Guy studied her face, then smiled a slow smile.  "Welcome
+back, Madeleine.  I really am glad to see you."
+
+An hour later, Guy  pulled his baeutifully laundered shirt
 cuffs out of the sleeves of his shirt jacket, exposing the gold,
-onyx and diamond cufflinks of which he was inordinately proud. He
+onyx and diamond cufflinks of which he was inordinately proud.  He
 smoothed his hair back with a pair of silver backed brushes, then
 studied himaself in the mirror with satisfaction.
+
 Thus armored, he strode out into the hallway across from Made-
 meine's tiny dressing room, turned left past the door to the cel-
-lar, then right and into the bar. He was pleased to see that a
+lar, then right and into the bar.  He was pleased to see that a
 good crowd had already gathered.
+
 He paused, progress momentarily arrested by the sight of a
 Gestapo major talking to two men in trench coats, one short and
 square, the other tall and almost excessively lean. The major was a
 long, narrow man with smooth black hair, sunken cheeks and the eyes
 of a fanatic.
+
 Major Pfister's predecessor looked like a satyr and had been a
 self-seeking, self-indulgent cruel boor who had left them alone.
-This man looked like a Jesuit gone awry. Guy did not find that
+This man looked like a Jesuit gone awry.  Guy did not find that
 reassuring.
-Just then the major turned and fixed Guy with his eyes. He
+
+Just then the major turned and fixed Guy with his eyes.  He
 stood there waiting as the other two men melted away.
+
 "It is a great pleasure to meet you at last, Herr Major," Guy
 said in his heavily accented German.
+
 "I hope it becomes my pleasure as well, Monsieur Ardiet," the
 major replied in equally heavily accented French.
+
 Since he seemed to prefer it, Guy reverted to his own lan-
-guage. "Is anyone joining you?"
-"No. I am dining alone. All the better to concentrate on the
+guage.  "Is anyone joining you?"
+
+"No.  I am dining alone.  All the better to concentrate on the
 performance of what I hear is a superb chanteuse."
-Guy gave a slight bow of acknowledgement. "You will, I hope,
+
+Guy gave a slight bow of acknowledgement.  "You will, I hope,
 let me provide you with a suitable bottle of wine to accompany your
 meal."
+
 "I have heard rumors of a very private cellar here."
-Guy forced a smile. "From you, Major, nothing is held pri-
+
+Guy forced a smile.  "From you, Major, nothing is held pri-
 vate."
+
 "Lafitte Rotheschild?"
-"It is my pleasure." He beckoned Henri, the maitre d', who
-was hovering in the entrance to the dining room. "The very best
-table for the Major Henri, and see that he is well served. I shall
-be providing the wine. Consult me after he has ordered."
-"Of course. Major." He inclined his head toward the Gestapo
-man. "If you will follow me."
+
+"It is my pleasure."  He beckoned Henri, the maitre d', who
+was hovering in the entrance to the dining room.  "The very best
+table for the Major Henri, and see that he is well served.  I shall
+be providing the wine.  Consult me after he has ordered."
+
+"Of course.  Major."  He inclined his head toward the Gestapo
+man.  "If you will follow me."
+
 Guy gave him a nod, then turned away, relieved to be able to
 welcome an elderly couple who were here to celebrate their wedding
-anniversary. The man whispered, "Champagne" at him, but not
-quietly enough. Guy saw his wife smile to herself. It was a happy
-smile. He made a mental note to give it to them at cost.
+anniversary.  The man whispered, "Champagne" at him, but not
+quietly enough.  Guy saw his wife smile to herself.  It was a happy
+smile.  He made a mental note to give it to them at cost.
+
 Next, he showed Colonel Richter and Majors Brandt and Wagner
-to what had become the colonel's regular table. He was relieved to
+to what had become the colonel's regular table.  He was relieved to
 see that Henri had placed Major Pfister two tables away, by the
 wall and next to the stage where he could watch Madeleine in pro-
-file without her having to look at him. The major would also have
-to turn quite deliberately look at Colonel Richter. Though he
+file without her having to look at him.  The major would also have
+to turn quite deliberately look at Colonel Richter.  Though he
 hated Germans and could not understand how Madeleine could be
 attracted to one, Guy had a grudging admiration for the colonel.
 The only objection he had to him was that he was always so discrete
 in his conversation.
+
 There was a momentary lull, then Major von Feber came in from
 the bar with an SS Lieutenant Heiligmann, someone Guy found obnoxi-
-ous. He was also concerned since the last time Major von Feber was
-in, he had created a scene at Colonel Richter's table. Though that
+ous.  He was also concerned since the last time Major von Feber was
+in, he had created a scene at Colonel Richter's table.  Though that
 had been instructive, he didn't want a repeat, not tonight, and so
 he jerked his head to indicate that Henri should seat them in the
 far corner.
+
 When he turned back he found a tall, well built dark haired
 German lieutenant and a small, attractive, dark haired French woman
-with careful eyes and a royal blue dress. They had no reserva-
+with careful eyes and a royal blue dress.  They had no reserva-
 tions, so he showed them to a small table close to the kitchen
 door, where the staff would be constantly walking by.
+
 He pulled out her chair, seating her with the same care he
 showed every woman who came in. He lifted the intricately folded
 napkin from the center of her place setting and snapped it open.
+
 He wondered why she didn't lift her hands so he could put the
 napkin in her lap until he saw that she was looking at Major Pfis-
-ter. He cleared his throat. She looked up, the faint residue of
-fear fading into resignation. She lifted her hands. As he put the
+ter.  He cleared his throat.  She looked up, the faint residue of
+fear fading into resignation.  She lifted her hands.  As he put the
 napkin into her lap, he had the sudden sense that this woman was
-Resistance. He couldn't have said why.
+Resistance.  He couldn't have said why.
+
 Gaston brushed past him with a muttered, "Sorry," and he
-watched as the boy went to Colonel Richter's table. Gaston shifted
+watched as the boy went to Colonel Richter's table.  Gaston shifted
 uneasily from one foot to the other and cleared his throat to get
-the colonel's attention. Then he leaned over and spoke quietly,
-almost into his ear. There was a nod in reply, but it was only
+the colonel's attention.  Then he leaned over and spoke quietly,
+almost into his ear.  There was a nod in reply, but it was only
 after Gaston had gone back into the kitchen that the colonel rose
 and made his way across the floor and through the exit that led to
 Madeleine's dressing room.
-Madeleine was going to tell him about the Gestapo. Guy was
-surprised at his own surprise. Madeleine did not go into a rela-
-tionship with a man lightly. She went into it heart and soul. The
-thought made him both sad and angry. He knew there could be noth-
-ing for Madeleine in this particular relationship but heart break
+
+Madeleine was going to tell him about the Gestapo.  Guy was
+surprised at his own surprise.  Madeleine did not go into a rela-
+tionship with a man lightly.  She went into it heart and soul.  The
+thought made him both sad and angry.  He knew there could be noth-
+ing for Madeleine in this particular relationship  but heart break
 and disgrace.
-He heard a raucous laugh and he half turned. Obviously
+
+He heard a raucous laugh and he half turned.  Obviously
 Lieutenant Heiligmannn was amused by something he saw on the other
-side of the restaurant. His face was red and shiny and Guy rea-
-lized that he had proibably already had too much to drink. There
-wasn't much he could do about it, except keep a watchful eye. Ger-
+side of the restaurant.  His face was red and shiny and Guy rea-
+lized that he had proibably already had too much to drink.  There
+wasn't much he could do about it, except keep a watchful eye.  Ger-
 man officers, especially, had to be served what they ordered.
-On the other hand Major von Feber looked absolutely sober. He
+
+On the other hand Major von Feber looked absolutely sober.  He
 was looking at Heiligmann with an expression Guy decided could be
 either amusement or disgust and probably was a mixture of both.
 But then Heiligmann turned back to the Major and the Major's mouth
 widened into what would have been a smile if it had extended to his
-eyes. Guy watched the by play with interest because he had long
-felt that there was something that didn't fit. Heiligmann was a
+eyes.  Guy watched the by play with interest because he had long
+felt that there was something that didn't fit.  Heiligmann was a
 boor and the major - the disagreement the other night aside - was a
-true aristocrat. The lieutenant leaned across the table, talking
+true aristocrat.  The lieutenant leaned across the table, talking
 quietly, then leaned back and slapped his hand on the table in glee
-at what had to be the punch line of a joke. There was a tremor of
+at what had to be the punch line of a joke.  There was a tremor of
 what Guy read as disgust on the major's face and he joined the
-laughter belatedly. The major doesn't like that man, Guy told him-
-self. He's prettending to, buit he doesn't like him at all.
-Henri came up and then there was no time. There were problems
+laughter belatedly.  The major doesn't like that man, Guy told him-
+self.  He's prettending to, buit he doesn't like him at all.
+
+Henri came up and then there was no time.  There were problems
 to be solved, confusions to be untangled, people to speak to,
-laughter to be joined in. He paused when Hans Richter came back
+laughter to be joined in.  He paused when Hans Richter came back
 across the diningroom, saw the set of his face and could read noth-
-ing. As he was sitting, the colonel's eyes caught someone across
-the room. There was a flicker of expression that Guy couldn't
-define, then nothing again. He found that puzzling and Guy Ardiet
-always paid attention to things he found puzzling. It was one of
-the reasons he was still alive. He walked behind the colonel's
+ing.  As he was sitting, the colonel's eyes caught someone across
+the room.  There was a flicker of expression that Guy couldn't
+define, then nothing again.  He found that puzzling and Guy Ardiet
+always paid attention to things he found puzzling.  It was one of
+the reasons he was still alive.  He walked behind the colonel's
 table so he could look in precisely the same direction, toward the
-kitchen door. Since there were no new employees who could be a
+kitchen door.  Since there were no new employees who could be a
 surprise, Guy knew he was looking at the table where the lady in
-blue was sitting. In addition to sufffering from traffic going to
+blue was sitting.  In addition to sufffering from traffic going to
 and from the kitchen, it was also isolated from the rest of the
-tables. But it was the lieutenant who faced the colonel in 3/4
-profile. All he could see of the woman was her hair. He asked
+tables.  But it was the lieutenant who faced the colonel in 3/4
+profile.  All he could see of the woman was her hair.  He asked
 himself what there was about this particular lieutenant that would
 both arrest the colonel and make him not want to acknowledge the
 lieutenant's existence.
+
 The lieutenant wasn't looking in his direction, and neither
-was the woman. They seemed quite content with each other. Guy
+was the woman.  They seemed quite content with each other.  Guy
 felt certain that if he was right and she was Resistance, she was
 getting a great deal of information for her trouble.
 
 Madeleine came out for her first set and the house quieted.
-She was superb, as she always was. Major Pfister watched her with
+She was superb, as she always was.  Major Pfister watched her with
 an intenisty that made Guy's hand fidget toward the flick knife in
 his pocket.
+
 Colonel Richter's face would have seemed impassive to anyone
-who wasn't watching closely. The only expression on Major von
-Feber's face was acute boredom. Guy wasn't surprised, since
+who wasn't watching closely.  The only expression on Major von
+Feber's face was acute boredom.  Guy wasn't surprised, since
 Lieutenant Heiligmann seemed to be doing all the talking, to the
 aggrivation of the people at the next table whose listening plea-
 sure was obviously being interfered with.
+
 The woman in royal blue was sitting with her back to him but
 he could see that she kept glancing at Madeleine, then back at the
-lieutenant. Her shoulders tensed. When Guy moved slightly, he
+lieutenant.  Her shoulders tensed.  When Guy moved slightly, he
 could see that she was simply picking at what was an excellent
-chicken entre. He had difficulty with this. If she was truly
+chicken entre.  He had difficulty with this.  If she was truly
 Resistance, she shouldn't have cared one way or the other about the
 attention the German was giving Madeleine.
+
 Then he noticed that the German lieutenant was looking from
 Madeleine to the Gestapo then toward what he was sure had to be the
 colonel's table. His eyes stopped only briefly before passing on.
 Finally the lieutenant shifted in his chair and began concentrating
-on the woman in blue. His expression softened and their heads
-moved closer across the table. As he talked, Guy saw the tension
+on the woman in blue.  His expression softened and their heads
+moved closer across the table.  As he talked, Guy saw the tension
 go out of her back.
+
 Just then, Madeleine finished her set and moved off the stage
-to thunderous applause. It was as the enthusiasm died down, that
+to thunderous applause.  It was as the enthusiasm died down, that
 Guy heard the sirens.
+LAYOUT 000
+STANDARD2
+B
+<
