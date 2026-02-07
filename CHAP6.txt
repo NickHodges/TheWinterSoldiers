@@ -2,7 +2,7 @@
 
           Hans' office was in the small town hall next to the hotel.  It
      had been the mayor's and so, though it wasn't really large enough,
-     it was a comfortable room with windows that overlooked the valley.  
+     it was a comfortable room with windows that overlooked the valley.
      It was a peaceful scene, one that usually helped his thought pro-
      cesses, but this afternoon he was waiting for his first official
      staff meeting and he was restless.
@@ -25,7 +25,7 @@
      into the existing situation in their own regiments and dividing up
      the rest with Schmidt and the battalion intelligence officer, a
      German aristocrat, Captain Erich von Feber, the one officer who had
-     been with the battalion when Hans had arrived whom he had kept on.  
+     been with the battalion when Hans had arrived whom he had kept on.
      Hans had had his doubts about keeping even von Feber, but Ulrich
      Wagner had vouched for him.  "He's a good man," Ulrich had said.
      "Smart, capable. He was transferred from commanding a Panzer unit
@@ -51,7 +51,7 @@
           Straighten out the mess, Karl had told him.  The divisional
      commander, General Kruger, had said the same thing, but for very
      different reasons.  "That battalion reflects badly on us all," he
-     had said.  What he really meant was that it reflected badly on him.  
+     had said.  What he really meant was that it reflected badly on him.
      Hans could only wonder why he hadn't done something about it him-
      self long ago.
           There were voices in the outer office and he was pleased to
@@ -63,7 +63,7 @@
      red hair and a pleasantly homely freckled face.  He greeted Hans
      and sat down in a wooden arm chair.
           Von Feber, an elegant, almost effete looking man with black
-     hair and eyes to match, simply nodded and took the other arm chair.  
+     hair and eyes to match, simply nodded and took the other arm chair.
      Schuster was short and stocky, with powerful shoulders and an
      impressive thatch of curly blonde hair. He smiled, then haunched
      himself onto a heavy table by the back wall.
@@ -113,7 +113,7 @@
           "The main problem, as the four of you see it," Hans said after
      they'd wound down, "is the state of readiness in general, both per-
      sonnel and equipment."
-          "And the field repair unit in particular."  Von Feber said.  
+          "And the field repair unit in particular."  Von Feber said.
      "A quarter of Wagner's tanks are over there and another quarter
      should be, along with about a third of Schuster's. And at least
      half of them are obsolete or so worn out that they might not be
@@ -235,7 +235,7 @@
      of the hand.  "What you're telling me is that between the two of
      them, they can get just about anything we want."
           "Yes."
-          "This new colonel is crazy if he thinks that." Kriebel said.  
+          "This new colonel is crazy if he thinks that." Kriebel said.
      "Even with all the new spare parts in Germany, we can't get all
      those tanks finished in a week.  More like three weeks and that's
      only if we work at it full time."
@@ -263,7 +263,7 @@
           Kriebel leaned forward and pointed an accusing finger at Nam-
      macher.  "You did get the passes.  We can't move anything without
      passes."
-          "Yes, I have passes," said Nammacher.  "Those will continue.  
+          "Yes, I have passes," said Nammacher.  "Those will continue.
      At least for the time being."  He squared up a small stack of
      papers that were already square.  "But he wants a quid quo pro.  He
      said that undoubtedly we come up with a great deal of information
@@ -370,7 +370,7 @@
           "No as much as you do," Guy said.  "If he closes down your
      part of the operation, you are closed down.  I'm French.  I could
      find someone else."
-          "With access to enough trucks and gasoline?  And passes.  
+          "With access to enough trucks and gasoline?  And passes.
      Don't forget the passes."  Kriebel tried to laugh.
           Guy lifted a placating hand.  He had a very good sense of when
      enough was enough with Kriebel.  "You're right, of course.  I'll
@@ -431,7 +431,7 @@
           "There are Germans here."
           "There are Germans everywhere." Her head came up and there was
           a flash of anger.
-          He liked that. It was better than world-weariness by far.  
+          He liked that. It was better than world-weariness by far.
      "Just not as many of them here?"
           "Certainly not as many colonels and generals.  Her voice was
      tight.  "And I'd be working where I have a cousin to protect me."
@@ -459,7 +459,7 @@
      was smiling.
           "What do you want, Guy," she asked cautiously.  "You never
      look at me like that unless you want something."
-          He laughed. He'd forgotten how bright and perceptive she was.  
+          He laughed. He'd forgotten how bright and perceptive she was.
      "There is something you can do for me.  Since you got so used to
      dealing with those colonels and generals in Paris, you can culti-
      vate a colonel, a new man who's stationed near here.  He interests
@@ -476,7 +476,7 @@
      ter than to say so.
           She shook her head and started to rise.  "I'm not bedding any-
      one.  Especially not a German."
-          He reached over and his hand tightened around her wrist.  
+          He reached over and his hand tightened around her wrist.
      "It's your choice about the bed.  I meant what I said, all I want
      you to do is to get to know him.  A few drinks..."
           "Is that a condition of employment?"
@@ -497,7 +497,7 @@
           "Since it's Charles..." She sighed.  "Two days?  We won't need
      much rehearsal. It will be as if we never stopped."
           "Just the singing part of it, I trust," he said warily.  "He
-     is still married, no thanks to you.  So tread carefully, please.  
+     is still married, no thanks to you.  So tread carefully, please.
      His wife won't be happy to hear you're back and he's far too good
      to lose."
           She shook her head. "I want no man in my life, especially
@@ -510,4 +510,4 @@
           "Fine."
           "Call Charles about rehearsal.  The store downstairs still
      takes calls for him so the number's the same."
-LAYOUT 000
+LAYOUT 000

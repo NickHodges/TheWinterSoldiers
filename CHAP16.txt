@@ -1,4 +1,3 @@
-
                                  Chapter XVI
 
           In the Cafe Ardiet, a crush was developing in the hallway that
@@ -6,7 +5,7 @@
           "There's plenty of room.  No need to push,"  Guy Ardiet was
      saying.  "Everything is ready downstairs.  The ceiling is heavily
      reinforced for your protection.  There are candles under the
-     benches along the walls and in the corners in case we lose power.  
+     benches along the walls and in the corners in case we lose power.
      And there's a bar and music for your pleasure." He urged one on
      here, placed a restraining hand on another there, and, for the
      moment, order was restored.
@@ -59,7 +58,7 @@
      of cigarette smoke toward what had to be considered a more favor-
      able location.  "How quaint," the supercilious voice was saying as
      it faded into the din made of loud talk compounded by the faint
-     tinkling of a piano.   A tall reedy looking SS officer followed.  
+     tinkling of a piano.   A tall reedy looking SS officer followed.
      Hans assumed it was Fritz Heiligmann since a grim faced Erich von
      Feber was just behind him.  Von Feber saw him and rolled his eyes
      before disappearing into the crowd.
@@ -69,7 +68,7 @@
      pointed to the far corner along the front wall.  As he led Made-
      leine in that direction, he kept turning back.  He could see
      Peter's head over the crowd.  He was making his way to the narrower
-     wall at the front, between Madeleine and him and the stairs.  
+     wall at the front, between Madeleine and him and the stairs.
 
           The shelter was a large room, occupying the total width and
      more than half the length of the building.  The ceiling had been
@@ -80,7 +79,7 @@
           Peter was not reassured.  He knew those beams would be nothing
      against a direct hit.  They would help only if a near miss made the
      building shake.  He had made a careful choice.  If the building did
-     fall in, it was safer in a corner or against the narrower wall.  
+     fall in, it was safer in a corner or against the narrower wall.
      Since John was already in the corner with the chanteuse, the narrow
      wall was the choice.
           But the walls didn't inspire confidence either.  They were
@@ -112,7 +111,7 @@
      them and that was a surprise to Peter.  Hans had been sensitive
      about his size growing up and had always preferred girls who were
      small and fine boned.  This one was scarcely that.
-          He looked down at Sylvie and found her regarding him soberly.  
+          He looked down at Sylvie and found her regarding him soberly.
      "You are tense," she said.  "And it is not the tension that comes
      in a man when he looks at a beautiful woman."  He started to open
      his mouth but she put a gentle finger to his lips.  "Therefore it
@@ -166,7 +165,7 @@
           Hans tossed down the rest of his brandy and beckoned for the
      waiter who put a hand through the crowd that was closing in around
      them.  "A double this time," he called over the din and watched for
-     the man's answering nod before he turned back to her.  "I'm sorry.  
+     the man's answering nod before he turned back to her.  "I'm sorry.
      I should have asked if you wanted more as well."
           She shook her head and lifted her glass to indicate that
       it was almost full.
@@ -199,11 +198,8 @@
      ing shuddered.  The floor heaved and the lights jumped and went out
      amid a cacophony of violent crackings and crashes and screams as
      the cellar seemed to fall in on itself.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-      B
- <
+LAYOUT 000
+
+STANDARD2
+B
+<

@@ -1,12 +1,12 @@
                                  Chapter X
 
 
-         One of Guy Ardiet's waiters appeared in his office doorway.  
+         One of Guy Ardiet's waiters appeared in his office doorway.
      "Henri asked me to tell you that Colonel Richter is here. He just
      came in."
          "Good!  Where is he?"
          "Henri put them at number 4.  Ringside.   One of mine."  He
-     smiled. That was a recent promotion.  "Another officer is with him.  
+     smiled. That was a recent promotion.  "Another officer is with him.
      A major.  The colonel is the smaller of the two and he has black
      hair."
 
@@ -142,12 +142,12 @@
      countless cigarettes rose and spread out into a thickening cloud
      near the ceiling. No one seemed to be paying any attention to them
      and even if they were, their table was far enough from the rest to
-     make it hard for anyone to hear.  "I don't want to talk about it.  
+     make it hard for anyone to hear.  "I don't want to talk about it.
      I'm tired of talking about it and I'm even tired of being tired of
      it.  I almost don't want to hope for it any more.  The failures are
      too excruciating. I've told Karl not to have any more alerts sent
      through.  It's too dangerous.  Just the code word when it's done."
-     He tore a roll apart, scattering crumbs of crust far and wide.  
+     He tore a roll apart, scattering crumbs of crust far and wide.
      "General von Kluge was going to come in with us."
          There was a grunt of surprise from Georg.  "Was going to? What
      happened?  A general in command of millions of troops on the Rus-
@@ -264,7 +264,7 @@
          Guy's look of surprise turned to amused speculation.
          "Is it to Major Wagner's consideration that we owe this excel-
      lent dinner?"  Hans asked to break the silence.
-         "By no means.  He has had his own dinner.  A few days ago.  
+         "By no means.  He has had his own dinner.  A few days ago.
      With two of his subordinates.  They seemed to have quite a happy
      time.
          "We are a large family, especially when you include those whose
@@ -275,7 +275,7 @@
      cousin.  Also your rules earlier in the summer about the grain
      fields...  We will have good grain crops this year.  It is greatly
      appreciated."  A small smile. "And you have insisted on a fair
-     price for farm goods received.  Something else that is appreciated.  
+     price for farm goods received.  Something else that is appreciated.
      It seems that Major Wagner isn't the only officer in your regiment
      who can be considerate."  He raised his glass toward Hans then
      drank.
@@ -363,12 +363,12 @@
          It took time and a real effort for Madeleine to forget about
      Guy and get into the second set which was both different from the
      first and yet precisely the same.  It helped that she didn't know
-     which of the many officers the German was or where he was sitting.  
+     which of the many officers the German was or where he was sitting.
      She might have been curious enough to look and that would have been
      distracting.
          By the time she was half way through, her eyes were coming back
      again and again to one man.  He was German and an officer but some-
-     how that didn't matter.  The only thing that mattered was his face.  
+     how that didn't matter.  The only thing that mattered was his face.
      She recognized the face if not the man, the utter world-weariness,
      the fatigue, the loneliness but most of all the pain because it was
      also her own.  She tried to look away and when she couldn't, she
@@ -432,7 +432,7 @@
          "Only that?"  There was sadness in her voice.
          "You are a remarkably ..."  He was looking at her matter-of-
      factly, studying her as she had studied him.  "It's hard to say
-     what you are.  You aren't beautiful in the conventional sense.  
+     what you are.  You aren't beautiful in the conventional sense.
      It's something better than that.  And that has to be part of it
      because that is part of what you are.  Perhaps I would want to see
      you because you don't like the war and you don't like German offi-
@@ -443,11 +443,8 @@
          Her eyes held his as she rose and while he rose in acknowledg-
      ment of that.  Then there was the faintest nod of agreement and she
      was gone.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-      B
- <
+LAYOUT 000
+
+STANDARD2
+B
+<

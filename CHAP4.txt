@@ -1,4 +1,3 @@
-
                                  Chapter IV
 
       Hans was walking in Karl von der Greif's large back garden,
@@ -33,7 +32,7 @@
       He scuffed at yet another patch of snow mold, then looked
   around, noticing all the small patches of it as if for the first
   time.  This winter had been hard on the lawn, but then, he thought
-  bitterly, this winter had been hard on everyone and everything.  
+  bitterly, this winter had been hard on everyone and everything.
   The only good thing that could be said about the winter of l942-43
   was that it was almost over.
       He went back to kicking at the grass, wondering idly what the
@@ -78,7 +77,7 @@
   seen her lying in her coffin, her face a waxy white, unnatural,
   still.
       She had loved him, wanted him, accepted him and wherever she
-  had been was home, the only real home he had known since 1936.  
+  had been was home, the only real home he had known since 1936.
   Now all of that gone.
       The pain of that constricted his chest and made it hard to
   breathe.
@@ -113,7 +112,7 @@
   and well out of everything that meant living in 1943.  But since
   he couldn't seem to avoid living, it was well he was going to
   France, somewhere different, somewhere were there were no personal
-  associations with anyone important to him except his cousin Peter.  
+  associations with anyone important to him except his cousin Peter.
   He remembered the last time they were together and his face sof-
   tened.  They had gone on a four week walking tour, hiking, fish-
   ing, drinking and laughing their way through the Ardennes, with a
@@ -125,7 +124,7 @@
   he had, he wouldn't have wanted to say it, at least not to Peter.
       The next time he had been in France, he was in a tank on a
   mission of destruction.  And now he would have to go back there
-  and face all that destruction.  He didn't like that part of it.  
+  and face all that destruction.  He didn't like that part of it.
   What he did like was the fact that he would be doing something
   worthwhile, getting troops ready to stop the civil war that was
   sure to come when Adolf Hitler was finally dead.  It was something
@@ -147,7 +146,7 @@
       Part of the problem was that he wanted them with him.  He
   trusted them, cared about them and was comfortable with them
   because they knew each others' ways.  They were also honest,
-  straightforward men, and Schuster at least was a good officer.  
+  straightforward men, and Schuster at least was a good officer.
   Hans had found that the war brought out unexpected talents in a
   great many men and felt Schuster was a prime example of that.  The
   unsophisticated north German farm boy who had come to war as the
@@ -208,7 +207,7 @@
   him.  "Could you tell me what forsythia is?  I must dig around the
   roots so they can ... breathe?  I think that's what the small man
   said I must do."
-      Hans smiled.  He could hear Karl's gardener saying just that.  
+      Hans smiled.  He could hear Karl's gardener saying just that.
   "There." He pointed to a bright yellow haze.
       "Here you are,"  said an angry voice.  It was Gustav, the
   gardener. "I'm sorry he's bothering you, Herr Colonel.  Stupid
@@ -289,7 +288,7 @@
       "Her father had disowned her when she married Voronov but now
   this letter arrived from him,  saying that they had heard of Voro-
   nov's death and knew that life had to be untenable for her.  They
-  loved her and missed her and wanted her to come home with Sergei.  
+  loved her and missed her and wanted her to come home with Sergei.
   He wrote them back, telling of his mother's death.  But he has no
   way of knowing if the letter ever got to them.  He's had no reply.
       "Then came the war and the boy was plucked from some boring
@@ -319,7 +318,7 @@
       Hans handed over the bottle, then sat in the same sort of
   chair on the other side of the fireplace and put his feet very
   deliberately onto a needle-point covered footstool.  Along with
-  her antiques, her needlepoint was the pride of Aunt Gretl's life.  
+  her antiques, her needlepoint was the pride of Aunt Gretl's life.
   It was everywhere in the house, almost ad nauseam, and she
   frequently made it plain that all these things were to be used
   only with great care, especially by him.
@@ -369,7 +368,7 @@
       Hans had never understood why Karl persisted in calling his
   son-in-law who was also his aide, Pflueger, especially since he
   was obviously so fond of him.
-      "Pflueger likes him. Has started teaching him the language.  
+      "Pflueger likes him. Has started teaching him the language.
   But the problem ...  He's attracting attention."
       Hans laughed.
       Karl's grin in return was feeble.  "Yes.  Of course.  How
@@ -377,7 +376,7 @@
   in Berlin, which is why I brought him here, to get him off the
   streets and give you a chance to look at him.
       "He keeps his own counsel, that boy, and he's very good with
-  machinery.  Bright.  So I want you to take him to France with you.  
+  machinery.  Bright.  So I want you to take him to France with you.
   You need a driver and he's a good one.  It's the best solution for
   you both."
       "Of course."
@@ -416,17 +415,14 @@
       "And you are willing to take me," he said to Hans.
       "It would give me pleasure."
       Sergei nodded slowly.  "Then I will be in France." He rose and
-  faced Hans, "I will serve you well, as I would serve the Gospodin.  
+  faced Hans, "I will serve you well, as I would serve the Gospodin.
   Just so you understand that I will not fight."
       "I understand that."
-      "Yes.  Thank you." He looked from one of them to the other.  
+      "Yes.  Thank you." He looked from one of them to the other.
   "I will go now."
         He went.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-      B
- <
+LAYOUT 000
+
+STANDARD2
+B
+<

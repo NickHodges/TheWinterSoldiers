@@ -1,9 +1,8 @@
-
                                   Chapter III
 
           Captain Michael Paul Cosgrove Compton, DSO, DSC, RN (Ret) was
      a tall, lean, distinguished looking man with a full head of graying
-     black hair.  He had impeccable taste and his office reflected that.  
+     black hair.  He had impeccable taste and his office reflected that.
      As section chief for MI6 in charge of gathering intelligence from
      all over Europe and he had an office in Whitehall that suited that
      position.  It also suited him personally.  Though his years in the
@@ -58,7 +57,7 @@
           lily-livered Chamberlain and the moral exhaustion of the
           French almost as much as I blame the venal creatures here,
           because they could have stopped it.  You know that.  I
-          know that.  And it could have been done as late as 1940.  
+          know that.  And it could have been done as late as 1940.
           I told you how and where, well before the invasion of
           France.
               But it's too late for recriminations, even if they
@@ -81,10 +80,10 @@
           and I blamed myself for it.  I felt that if it weren't for
           me, she wouldn't have been in an English hospital giving
           birth to our son when that bomb fell.  But I see now that
-          you were right, that it wasn't anyone's fault, even mine.  
+          you were right, that it wasn't anyone's fault, even mine.
           It was simply one of those terrible, senseless accidents
           of war.  The German bombs that killed her in England could
-          just as easily have been British bombs killing her here.  
+          just as easily have been British bombs killing her here.
           But even if I had been able to see that then, I still
           don't think I could have sat out the war over there,
           safely doing some dreary intelligence job when I could be
@@ -127,7 +126,7 @@
           and respect her.  And James, too, as a brother, though
           he'd snort at hearing that.  I know that together you and
           Mother will take good care of Punch.  James and Annabelle,
-          too. Smartest thing old James ever did was to marry her.  
+          too. Smartest thing old James ever did was to marry her.
               Be happy together, all of you, and love my son for me.
                                                    Love,
                                                     Hans
@@ -151,12 +150,12 @@
      sion anywhere.  There was nothing in the German newspapers, nothing
      in their propaganda broadcasts, not a sign, not a whisper.  And there
      was nothing from Ultra either.
-         Michael finally gave up on the report and sat back in his chair.  
+         Michael finally gave up on the report and sat back in his chair.
      He found this far worse than waiting to go into battle because at
      least in battle there was the hope of victory.  With this, there was
      only the sureness of death - John's death - and the thought of that
      was beyond bearing.
-         Michael hadn't told Anne because he didn't know what to tell her.  
+         Michael hadn't told Anne because he didn't know what to tell her.
      She knew he was keeping something from her and was upset. She'd
      asked, of course, with a coldness that was frightening, but all he'd
      said was that it was the pressure of work.
@@ -196,7 +195,7 @@
      of Signal, the German propaganda magazine.  Staring out at him from
      the cover was the face of John Richter.  The picture had been taken
      from below both to make him look more imposing and to emphasize the
-     Knight's Cross which hung in the inverted V formed by his collar.  
+     Knight's Cross which hung in the inverted V formed by his collar.
      The silver and black cross was now topped with the silver of the
      Swords and Oak Leaves.
          The picture upset him.  John was far too thin, but he was also
@@ -239,7 +238,7 @@
      ically tightened around his glass.  He lifted it and took a long
      drink.
          Finally she closed the magazine. "What else is there, Michael?"
-     He heard the combination of resignation and anxiety in her voice.  
+     He heard the combination of resignation and anxiety in her voice.
      "There's more. Something about John that you're not telling me."
      He saw tears in her eyes that didn't fall.  "He really is all right,
      isn't he?"
@@ -250,13 +249,9 @@
      long time.  "He failed, didn't he."  The words were very small.
          "Yes."
          "Thank God."  She burst into tears.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-       B
-  
-       <
-  ?   A   ˙ -------\----#-----------------
+LAYOUT 000
+
+STANDARD2
+B
+
+<

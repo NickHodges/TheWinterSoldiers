@@ -77,14 +77,14 @@
           "Thank God, there is nothing I can tell them.  We never talk
      about the war."
           "I doubt they want to know about that. The Gestapo can find
-     out about what he's done during the war from a great many people.  
+     out about what he's done during the war from a great many people.
      I'm sure what they're after ...  If the Gestapo wants information
      about a German officer, it has to be because they suspect him of
      being a subversive."
           "That's ridiculous."
           "Perhaps.  But you'll know if that's what they suspect by the
-     questions he asks.  If that's it, he'll want personal information.  
-     Who he sees, where he goes and who is there when he gets there.  
+     questions he asks.  If that's it, he'll want personal information.
+     Who he sees, where he goes and who is there when he gets there.
      What has he had to say about the German government and the war.  I
      know.  I know." He waved her off.  "You don't talk about the war,
      but perhaps he has said something about war in general, about his
@@ -108,7 +108,7 @@
      army already knows all about his family, it can't be very impor-
      tant." She shrugged.  "I shall be a great disappointment to the
      Gestapo."
-          "Whatever they ask you, you need to seem to be cooperating. 
+          "Whatever they ask you, you need to seem to be cooperating.
      Answer what you can with plenty of detail."
           "And what if they ask me about you?  That's what it could be
      about, you know."
@@ -117,8 +117,8 @@
      me. They give me protection in return for certain goods and favors,
      a lot of goods and more favors than I care to think about."
           "Then they would never hurt me."
-          His hands slapped the desk so hard that it made her jump.  
-     "You're a fool. They protect me only as long as I'm useful to them.  
+          His hands slapped the desk so hard that it made her jump.
+     "You're a fool. They protect me only as long as I'm useful to them.
      If I cease to be useful, or if it suits their purpose, the Gestapo
      would grind me under its heel and walk on as if I had never
      existed.  I'm no protection.  You have no protection when you're in
@@ -152,7 +152,7 @@
      long, narrow man with smooth black hair, sunken cheeks and the eyes
      of a fanatic.
           Major Pfister's predecessor looked like a satyr and had been a
-     self-seeking, self-indulgent cruel boor who had left them alone.  
+     self-seeking, self-indulgent cruel boor who had left them alone.
      This man looked like a Jesuit gone awry.  Guy did not find that
      reassuring.
           Just then the major turned and fixed Guy with his eyes.  He
@@ -190,7 +190,7 @@
      file without her having to look at him.  The major would also have
      to turn quite deliberately look at Colonel Richter.  Though he
      hated Germans and could not understand how Madeleine could be
-     attracted to one, Guy had a grudging admiration for the colonel.  
+     attracted to one, Guy had a grudging admiration for the colonel.
      The only objection he had to him was that he was always so discrete
      in his conversation.
           There was a momentary lull, then Major von Feber came in from
@@ -236,7 +236,7 @@
      man officers, especially, had to be served what they ordered.
           On the other hand Major von Feber looked absolutely sober.  He
      was looking at Heiligmann with an expression Guy decided could be
-     either amusement or disgust and probably was a mixture of both.  
+     either amusement or disgust and probably was a mixture of both.
      But then Heiligmann turned back to the Major and the Major's mouth
      widened into what would have been a smile if it had extended to his
      eyes.  Guy watched the by play with interest because he had long
@@ -273,7 +273,7 @@
      getting a great deal of information for her trouble.
 
 
-          Madeleine came out for her first set and the house quieted.  
+          Madeleine came out for her first set and the house quieted.
      She was superb, as she always was.  Major Pfister watched her with
      an intenisty that made Guy's hand fidget toward the flick knife in
      his pocket.
@@ -292,7 +292,7 @@
      attention the German was giving Madeleine.
           Then he noticed that the German lieutenant was looking from
      Madeleine to the Gestapo then toward what he was sure had to be the
-     colonel's table. His eyes stopped only briefly before passing on.  
+     colonel's table. His eyes stopped only briefly before passing on.
      Finally the lieutenant shifted in his chair and began concentrating
      on the woman in blue.  His expression softened and their heads
      moved closer across the table.  As he talked, Guy saw the tension
@@ -300,11 +300,8 @@
           Just then, Madeleine finished her set and moved off the stage
      to thunderous applause.  It was as the enthusiasm died down, that
      Guy heard the sirens.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-      B
- <
+LAYOUT 000
+
+STANDARD2
+B
+<

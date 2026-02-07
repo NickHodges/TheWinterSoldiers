@@ -1,5 +1,3 @@
-
-
                                  Chapter XII
 
          It was a brilliant fall day.  The sky was cloudless and the
@@ -58,7 +56,7 @@
      up in Normandy, about the big family which had watched over her
      after her mother died, about various eccentric relatives including
      her Aunt Clothilde who had arranged for her to have the whole second
-     floor of the house directly behind hers when she moved back to Caen.  
+     floor of the house directly behind hers when she moved back to Caen.
      It was a different life than he had ever known and she told wonder-
      ful stories about everyone that made him laugh.  It was wonderful to
      laugh like that.  It made her matter to him.  But he didn't want her
@@ -143,7 +141,7 @@
      turned to bitterness.  "And for those who actually fight the war,
      the average soldier ...  He think war gives him a chance to prove
      his worth as a man.
-         "One of the differences between men and women ...  Men need war.  
+         "One of the differences between men and women ...  Men need war.
      Women don't.  Women prove their courage in creation, not destruc-
      tion." She went back to plucking at the grass beside her.  "They
      joyfully take in the seed of a man they love and carry the fruit of
@@ -181,12 +179,12 @@
      the boy ..."
          He tried to shut out her voice.
         "He didn't tell me he had to go a meeting.  I don't know whether
-     it was Resistance or the black market business. It doesn't matter.  
+     it was Resistance or the black market business. It doesn't matter.
      He took the boy with him because he thought no one would suspect him
      if he was carrying a child.  But something happened and the Gestapo
      came.  He left Andre and ran.  The Gestapo was shooting.  The others
      shot back.  I keep thinking how terrified Andre must have been." She
-     was weeping now and barely comprehensible. "A two year old child.  
+     was weeping now and barely comprehensible. "A two year old child.
      He wandered out, probably crying for me or this man, Pierre.  No one
      was paying any attention to him.  He got caught in the middle.  Got
      shot, over and over."  She drew in a deep breath and her voice
@@ -249,7 +247,7 @@
 
          "Schmidt..."  Hans paused as he walked through his outer office
      and eyed Schmidt warily.  Schmidt was standing behind his desk at
-     what would have been attention if he hadn't been swaying slightly.  
+     what would have been attention if he hadn't been swaying slightly.
      "I think you had better come into my office."
          "I would like to," Schmidt replied.
          Hans went in and sat behind his desk.
@@ -309,7 +307,7 @@
     take care of yourselves, provided you have the facts."
          Schmidt's eyes narrowed and then his face screwed up with the
      effort of turning his thinking to accommodate this turn of events.
-     "Yes."  He nodded.  "I can take care of myself."  More thinking.  
+     "Yes."  He nodded.  "I can take care of myself."  More thinking.
      "If I have the facts." He nodded again.  "But that insult ...  I
      can accept that that is what you might have done, not thinking of
      it that way.  But it's the trust, you see.  Do you see?"
@@ -339,10 +337,10 @@
          Hans waited.
          "I ... want ... to ... know."  With that he crumpled into a
     heap on the floor.
-         Hans bellowed for Sergei as he rushed around the desk.  
+         Hans bellowed for Sergei as he rushed around the desk.
          "Are you all right?"  Hans asked Schmidt frantically as he knelt
      beside him.
-         Schmidt's eyes were open and he was trying to focus on Hans.  
+         Schmidt's eyes were open and he was trying to focus on Hans.
     "...  know," he said. The word was more a movement of lips than a
     sound.
          "In the morning."
@@ -446,7 +444,7 @@
      doesn't suit you, even though you have a job you do very well."  He
      lifted Scmidt's feet and pulled out the blanket that was neatly
      folded at the foot of the bed. "Because you can never really be part
-     of the officer corps.  You don't belong.  It's why you talk to me.  
+     of the officer corps.  You don't belong.  It's why you talk to me.
      I don't belong either."  He covered Schmidt with the blanket then
      pulled up a comfortable chair, took off his own boots and sat back
      with his feet on the end of the bed, preparing to watch until he was
@@ -493,7 +491,7 @@
      nothing could.  The cold had taken root and she knew it wouldn't
      leave until spring.
          She cursed the geese for being able to fly south where it would
-     be warm, perhaps even far enough south so there would be no Germans.  
+     be warm, perhaps even far enough south so there would be no Germans.
      She cursed the Allies for not coming across the Channel with the
      geese, for waiting until the likelihood of winter storms meant they
      couldn't come until spring.  They had already held on through three
@@ -523,7 +521,7 @@
      again.  That could break a woman's heart.
          He wanted to know who commanded each of six different Wehrmacht
      units around Caen and Falaise and where their headquarters were.
-     That puzzled her. London should have had that information already.  
+     That puzzled her. London should have had that information already.
      But he also wanted to know where those commanders went when they
      were off duty, who usually went with them, and whether there were
      women involved.
@@ -539,7 +537,7 @@
      at least they didn't look new.  They were worn, some of them
      stained, and they had the sort of crease marks that come only when
      papers have been unfolded and refolded many times over a long period
-     of time.  There was even a letter, hand written in German script.  
+     of time.  There was even a letter, hand written in German script.
      Whoever had made those papers had done well by him.
          He was going to a German army unit.  It was the only explana-
      tion.
@@ -560,7 +558,7 @@
          Usually she loved being out in the woods but suddenly she didn't
      like it at all.  Suddenly she thought it was stupid to have a fish-
      ing line set out.  There were no fish, not at this time of day or
-     this time of year.  She opened the lid and pulled out two plates.  
+     this time of year.  She opened the lid and pulled out two plates.
      But that didn't matter either, she told herself, because all they
      were supposed to look like was - She plunked a set of napkin-wrapped
      silver onto each plate. - a happy French couple spending some time
@@ -684,7 +682,7 @@
     for him to know."
          "You're right."  She was just standing there, basket in hand,
      looking at the trees, the river, everywhere but at him.  "Our
-     fathers expect us to marry, have expected it since we were children.  
+     fathers expect us to marry, have expected it since we were children.
      Then I married Henri." She shrugged.  "Now they expect it again."
          "Will you marry him?"
          "No.  Jacques assumes I will, but then he always assumes too
@@ -735,11 +733,8 @@
      careful to come back."  With that she fled, leaving only the faint
      warmth that had penetrated his coat and the sound of quick light
      footsteps running away from him down the hall.
-LAYOUT 000
-:ê  B 
-  
-*®U   <
-_        ˙ \---+----+----+----+---------+---------+---------+---------+--@-/----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-     STANDARD 2
-      B
- <
+LAYOUT 000
+
+STANDARD2
+B
+<
